@@ -1,0 +1,9 @@
+# excludes
+*
+
+#
+!*.html
+!*.css
+!Makefile
+!.gitignore
+!.vimrc
