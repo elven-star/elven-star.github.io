@@ -1,9 +1,3 @@
-# excludes
-*
-
-#
-!*.html
-!*.css
-!Makefile
-!.gitignore
-!.vimrc
+# Excludes
+token.md
+*.code-workspace
