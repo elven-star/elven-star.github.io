@@ -78,8 +78,8 @@ set winminheight=0
 set winheight=1
 set winminwidth=0
 set winwidth=1
-exe 'vert 1resize ' . ((&columns * 108 + 135) / 270)
-exe 'vert 2resize ' . ((&columns * 161 + 135) / 270)
+exe 'vert 1resize ' . ((&columns * 117 + 117) / 235)
+exe 'vert 2resize ' . ((&columns * 117 + 117) / 235)
 argglobal
 let s:cpo_save=&cpo
 set cpo&vim
@@ -90,8 +90,8 @@ imap <buffer> <C-H> <Plug>delimitMateBS
 imap <buffer> <BS> <Plug>delimitMateBS
 xnoremap <buffer> <silent> [[ :exe "normal! gv"|call search('\%(^#\{1,5\}\s\+\S\|^\S.*\n^[=-]\+$\)', "bsW")
 nnoremap <buffer> <silent> [[ :call search('\%(^#\{1,5\}\s\+\S\|^\S.*\n^[=-]\+$\)', "bsW")
-nnoremap <buffer> <silent> ]] :call search('\%(^#\{1,5\}\s\+\S\|^\S.*\n^[=-]\+$\)', "sW")
 xnoremap <buffer> <silent> ]] :exe "normal! gv"|call search('\%(^#\{1,5\}\s\+\S\|^\S.*\n^[=-]\+$\)', "sW")
+nnoremap <buffer> <silent> ]] :call search('\%(^#\{1,5\}\s\+\S\|^\S.*\n^[=-]\+$\)', "sW")
 imap <buffer> <silent> g <Plug>delimitMateJumpMany
 imap <buffer>  <Plug>delimitMateBS
 imap <buffer> " <Plug>delimitMate"
@@ -221,7 +221,7 @@ setlocal nowinfixheight
 setlocal nowinfixwidth
 setlocal wrap
 setlocal wrapmargin=0
-let s:l = 1 - ((0 * winheight(0) + 35) / 70)
+let s:l = 1 - ((0 * winheight(0) + 35) / 71)
 if s:l < 1 | let s:l = 1 | endif
 exe s:l
 normal! zt
@@ -240,8 +240,8 @@ imap <buffer> <C-H> <Plug>delimitMateBS
 imap <buffer> <BS> <Plug>delimitMateBS
 xnoremap <buffer> <silent> [[ :exe "normal! gv"|call search('\%(^#\{1,5\}\s\+\S\|^\S.*\n^[=-]\+$\)', "bsW")
 nnoremap <buffer> <silent> [[ :call search('\%(^#\{1,5\}\s\+\S\|^\S.*\n^[=-]\+$\)', "bsW")
-nnoremap <buffer> <silent> ]] :call search('\%(^#\{1,5\}\s\+\S\|^\S.*\n^[=-]\+$\)', "sW")
 xnoremap <buffer> <silent> ]] :exe "normal! gv"|call search('\%(^#\{1,5\}\s\+\S\|^\S.*\n^[=-]\+$\)', "sW")
+nnoremap <buffer> <silent> ]] :call search('\%(^#\{1,5\}\s\+\S\|^\S.*\n^[=-]\+$\)', "sW")
 imap <buffer> <silent> g <Plug>delimitMateJumpMany
 imap <buffer>  <Plug>delimitMateBS
 imap <buffer> " <Plug>delimitMate"
@@ -379,19 +379,18 @@ normal! zo
 normal! zo
 799
 normal! zo
-let s:l = 1136 - ((69 * winheight(0) + 35) / 70)
+let s:l = 1136 - ((70 * winheight(0) + 35) / 71)
 if s:l < 1 | let s:l = 1 | endif
 exe s:l
 normal! zt
 1136
 normal! 0
 wincmd w
-2wincmd w
-exe 'vert 1resize ' . ((&columns * 108 + 135) / 270)
-exe 'vert 2resize ' . ((&columns * 161 + 135) / 270)
+exe 'vert 1resize ' . ((&columns * 117 + 117) / 235)
+exe 'vert 2resize ' . ((&columns * 117 + 117) / 235)
 tabnext 1
 badd +4 /Volumes/GoogleDrive/My\ Drive/elven-star.github.io/CharacterSheet.md
-badd +32 /Volumes/GoogleDrive/My\ Drive/elven-star.github.io/ElvenStar.md
+badd +0 /Volumes/GoogleDrive/My\ Drive/elven-star.github.io/ElvenStar.md
 if exists('s:wipebuf') && len(win_findbuf(s:wipebuf)) == 0
   silent exe 'bwipe ' . s:wipebuf
 endif
