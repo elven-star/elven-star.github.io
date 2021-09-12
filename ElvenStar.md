@@ -1131,6 +1131,43 @@ different about them."
 gazed towards the Village. "Ana!" he called out with worry and dashed towards
 the village engulfed in dancing golden flames.
 
----
+## Chapter 5
+
+<!-- Part 1: Kris looks around the village and sees the destruction. People,
+fighters or civilians lay on the ground injured. Kris is afraid. He's afraid to
+see Ana injured or worse, gravely injured. Kris finds Janna and Arnold cut up
+badly their batons chipped.i 
+
+Part 2: Kris searches for Ana, but is unable to find her. Arnar, the boy who
+looked up to kris is dead. A dagger pierced through his heart. Joan has her
+throat sliced.  Kris madly searches for Ana but she's nowhere to be found.
+Freya, who's at his side tells him to fix Janna and Arnold who were the worst
+hit.  Kris mindlessy ties lacerates their wounds and ties bandages. Freya talks
+to people and finds out that Ana was taken. Kris breaks down and doesn't know
+what to do. Freya picks him up and coax him to find Ana before anything
+happens.
+
+Part 3: Kris prepares to leave Snowdale in search of Ana. He visits Janna and
+Arnold and appoint them as the interim leaders of the village. Gilly is made
+incharge of the mining operations as Kris rememebers to reward her skills.
+Freya joins Kris in his quest and the duo make their way out of the Snowdale
+towards Moonspire the closest and the largest city near Snowdale.
+
+Important things to note: 
+	1. Kris often visits Moonspire to sell off extracted Vumirium
+	2. The villagers have never visited the city because of treacherous
+	   journey. The Journey takes 7 days and the traveller needs to walk
+through the mountainous terrain of Snowall mountain. Snowdale sits in a valley!
+	3. How was it settled? Snowdale was a bandits valley. Kris arrived and
+	   brought order to the valley. 
+	4. Janna, Arnold were born in the village. Kris brought Freya and her
+	   father into the village on his way back from Moonspire. Everyone has
+noticed that Kris doesn't age. Ana was found in the mean streets of Moonspire
+when she was a girl of 8 (Apparently she was trained as a spy at a very early
+age in Ana's arc we'll explore how Ana was made a spy and what she was doing in
+Moonspire.)	
+
+Part 4: Kris' discovery of Snowdale, his fight with the bandit gang, the death
+of Bandit leader and formation of Snowdale -->
 
 
