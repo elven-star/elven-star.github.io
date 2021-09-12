@@ -1170,4 +1170,40 @@ Moonspire.)
 Part 4: Kris' discovery of Snowdale, his fight with the bandit gang, the death
 of Bandit leader and formation of Snowdale -->
 
+Kris felt the heat from the raging flames on his face. He reached for Freya's
+hands and grasped them tightly in his. *No. No. No.* he thought with panic, *I
+should have fought them outside.* He broke into a sprint and snaked his way
+through the streets of Snowdale. 
+
+All around him his people lay broken. Some had lost an eye and others were
+bleeding from the ears as a blade-- the blue blade-- cut through the muscle
+cleanly. A few of his miners writhed in pain from the burn scars that they had
+sustained.
+
+"What happened?" Freya said in a soothing voice that did not comfort him.
+
+"They all..." Kris tried to find the right words, "This all happened because of
+me!"
+
+Freya inched closer to him and ran her soft hands along his cheeks and said in
+a soft, comforting pitch, "You didn't do this, Kris. The 5th Legion did." Tears
+formed in his eyes and grabbed Freya's hands, *I was not competent.* he wanted
+to say but no voice come out.
+
+"Let's find Ana!" Freya reminded him about the little girl he loved to bring
+him back from his sorrow.
+
+"Ana!" Kris steeled his mind and pushed the overwhelming pain he felt away and
+dashed towards his house. *I shouldn't have left her behind. I was focused on
+the mines and I made mistakes.*
+
+"Freya," Kris stopped and turned around, "What if..." a teardrop formed in her
+eyes, "What if Ana's injured?" he tried to keep the image of a lacerated, burnt
+Ana away from his mind, "What if she's dead?"
+
+Freya embraced him in a warm hug and helped strengthen his resolve, "If that
+happens," she gave him a gentle kiss on his forehead, "They'll see Kris' fury.
+Don't worry, you have given her a sword! Our little Ana is smart enough to
+defend herself!"
+
 
