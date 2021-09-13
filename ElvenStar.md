@@ -1247,4 +1247,102 @@ his grief once again, "You need to treat them."
 wounds!" Kris looked at Janna and Arnold bleeding to their death and he wiped
 the tears from his eyes and found courage once again.
 
+---
+
+Kris had cleaned the wound and gave them a strong anesthetic derived from tree
+bark. Aitken a small boy had come to help Kris upon Freya's request and Kris
+ordered the little boy to make the antispetic paste.
+
+Kris had started a small fire in the makeshift hospice and had placed his flute
+to in the burning wood, "Where should I place them?" Ricky a miner who had
+disappeared in the mountain with Gilly pointed at the injured villagers who
+were too weak to move or were unconscious.
+
+"There!" Kris pointed towards a cloth spread by the window, "I'll need more
+people to make the antiseptic paste, Aitken will teach them how." Ricky nodded
+and left. A few moments later Gilly appeared with a small group of miners and
+officers and Aitken showed them the process. 
+
+*Save them,* Kris maintained focus on treating the injured, *Janna and Arnold
+are indispensible.* 
+
+The fire had raged and turned the flute red-hot, Kris picked it with open hands
+and cauterized the wounds that Janna and Arnold had sustained. Kris looked
+around and saw Gilly staring at him with open mouth.
+
+"I'm insensitive to heat." Kris said as he placed the flute back into the fire.
+
+"Sir," Gilly approached him, "How can I be of help?"
+
+*Ana.* Kris thought, *Should I send her looking for Ana? No!* "Go around the
+village and prepare a detailed report about the damage." Gilly nodded, "I want
+someone who can help me with this, send for the mines doctor."
+
+"Okay." Gilly gave him a quick hug and left him with the a team of untrained
+men and women creating antiseptic paste. 
+
+"Sir," Aitken said, "Does this look good?" Kris walked towards him and looked
+at the consistency of the paste that he had made. *It's not perfect. But it's
+not bad!* 
+
+"This is good!" Kris said, "Come with me!" he ordered the boy, "Bring the
+paste."
+
+Kris stood next to Janna how was in a state of comatose and took the bowl of
+paste from Aitken who stood opposite him, "Now," Kris said digging his fingers
+into the bowl, "I'm going to teach you how to apply antiseptic paste. When you
+understand this, I want you to take a couple of them outside and treat anyone
+who's only mildly injured. Do you understand?" The boy nodded and Kris
+continued to walk him through the methodology of treating injuries with
+Antiseptic.
+
+"Always make sure you've cleaned the wounds," Kris said, "Do you understand?"
+
+"Keep the paste should form a thin layer on the wound." Kris explained, "This
+will make the wound breathe air and heal faster. Do you understand?" 
+
+"Take this, apply it over here!" he asked the little boy to show what he had
+learned. *Good! He can become a fine doctor.* 
+
+"Kris?" an old man with balding head an unkempt beard walked in through the
+door, "Gilly sent me!"
+
+"I'll need you to start treating that batch!" he pointed towards the patients
+who were lying unconscious on the floor by the window, "I hope you know what to
+do!" the doctor nodded and got to his work, "When you need to cauterize th
+wound, call me!"
+
+"Kris!" Freya had walked in through the door Kris' felt fear wrap his mind.
+
+Kris looked at Freya's beautiful form and for a moment he forgot about his
+worries, "Did you find her?"
+
+"Kris," Freya held his hands in hers, "You did a great job, you did everything
+you could..."
+
+"No." Kri said, "She can't be dead!"
+
+"No," Freya calmed him, "She was taken by the Legion." *No. No. No...* Kris
+thought as he crumbled to the ground, his men, his soldiers looked at him with
+anxiety and worry, *I lost her. I shouldn't have fallen in Love.* he looked at
+Freya and a part of him smiled.
+
+"I lost her." Kris thought, "I lost my little Ana."
+
+"Kris," Freya ran her fingers through his black, matted hair, "You need keep
+yourself together. We need to find her and bring her back. She's not lost,
+Kris, till you give up! You are Kris.You are their Horror."
+
+"No!" Kris thought, "I can't be! I can't be that person."
+
+"Kris," Freya said in a soothing yet commanding voice, "We need to bring your
+little Ana back!"
+
+"What should I do?"
+
+"Let's head out! Let us find them." Freya held his cheeks between her palms,
+"I'm a good hunter. We can track them down and we can recover Ana."
+
+---
+
 
