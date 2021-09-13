@@ -1206,4 +1206,45 @@ happens," she gave him a gentle kiss on his forehead, "They'll see Kris' fury.
 Don't worry, you have given her a sword! Our little Ana is smart enough to
 defend herself!"
 
+"I..." Kris choked and Freya held him in her arms. He wiped the tears that
+welled in his eyes and continued to wind down the street. The smell of ash and
+charred hair filled the air and Kris' heart with extruciating pain. Kris
+stopped again and held his heart, *All this... All this destruction... This
+death...* his eyes lost their focus.
+
+"Kris."  Freya's voice brought him back to reality and he found himself
+standing in front of the deposits.
+
+Kris looked around and found Janna and Arnold, sharing a cigarette, their
+bodies lacerated and their wounds oozing a stream of blood, *How can they be
+sharing a moment like that?* Kris thought as he approached the two.
+
+"Kris." Janna said holding her neck with one hand and a cigarette with another,
+"We couldn't..." she tried to complete her sentence but pain flooded her
+senses.
+
+"We couldn't protect the deposits." Arnold took the cigarette from Janna took a
+deep puff. Kris glared at them and took the cigarette from his hands and
+crushed it on the ground.
+
+"Where's Ana?" Kris asked. His heart thumped nervously against his chest as he
+waited for their answers. His mind raced away quickly and flashed visions of
+Ana's corpse. 
+
+"We..." Janna tried to speak up, "We don't know."
+
+*No. No. No.* his mind escaped his control, *I've lost her. I've lost another.
+I should have brought he with me. I should have fought them before they could
+pillage the village. I should have equipped them better. I should have trained
+them better... Ana.*
+
+"Kris." Freya placed her soft hands on his shoulders and pulled him back from
+his grief once again, "You need to treat them."
+
+"But..." Kris looked at his hands, "Ana..."
+
+"Ill go look for her." Freya said squeezing her hands, "You treat their
+wounds!" Kris looked at Janna and Arnold bleeding to their death and he wiped
+the tears from his eyes and found courage once again.
+
 
