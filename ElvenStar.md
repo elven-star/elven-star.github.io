@@ -1345,4 +1345,70 @@ little Ana back!"
 
 ---
 
+Kris found Arnar's body lying on the bed with a sword jutting through his
+chest. *They killed him as well.* Kris thought as he tried to keep tears from
+welling in his eyes, *He died idealizing me... I couldn't even project him.*
+Kris pulled the flute from his pocket played a lamenting melody to mourne,
+Arnar and Joan's death. 
 
+By the time the melody crescendoed, Freya had come with a a bag hanging on her
+back and a staff that she had fashioned out of a relatively straight branch.
+Kris wiped the small droplets of tears that had formed in his eyes and gave
+Freya a sad smile, *I couldn't protect them...* He thought as he mindlessly
+packed hard bread, apples and some salt and pepper in his bag. He looked around
+and pulled the sword free Arnar's chest and wrapped it in leather sheet. 
+
+"You should call someone perform the final rituals." Freya told Kris in a
+soothing voice from her favorite place by the hearth. Kris nodded and went out
+to call a miner named Hark.
+
+"Were you friends with Arnar?" Kris asked Hark as he walked in through the
+door. He shook his head as Kris led him towards the blood-drenched body, "Do
+you know someone who were friends with him?" 
+
+"Yes!" Hark nodded. Kris heard Hark's stomach churn.
+
+"Good! Find them." Kris looked at Freya who was getting up on her feet. He
+looked around the house and gave it one final look, "Give him proper farewell."
+Kris handed the keys of his door to Hark and the three left in silence. Kris
+found Gilly organizing the men and ordering them around.
+
+"Gilly," a young miner walked up to her, "We've found another! He was trapped
+inside his house as it burned."
+
+"Why are you telling me that?" Gilly said angrily, "Get that man to the
+infirmary. Ricky, Inform the doctor about this man, now!"
+
+*She's a natural.* Kris thought as he walked up to her, *I can leave the
+village in her hands.*
+
+"Sir!" Gilly blushed pink and stood up straight. Her eyes moved to avoid gazing
+into Kris' passion filled eyes.
+
+"Gilly," Kris said putting an arm around her shoulders, *I need to show a calm
+face. I need to show strength.* "I'm going to find those who took my little
+Ana." Kris placed a finger under her chin and raised her head, "Here's what you
+are going to do!
+
+"I want you to take care of the mining operations, get the mines up and
+running. There can be more attacks while I'm away, I want you to find strong
+willed men who can take up arms. And make them work extra hard in the mines. I
+want them to build their physique. There are a bunch of swords in the mine
+compound, send someone and bring them back to the Deposits."
+
+"Sir, I can make the work extra hard in mines, but we don't know how to handle
+the swords."
+
+"Look out for someone named Maya. I'll be sending her to train soldiers. Tell
+the doctor to treat Janna and Arnold with extra attention. I want them to be
+trained in Swords." Kris looked at Gilly's eager eyes, *Should I tell her about
+smelting weapons?* Kris thought for a moment, *No.* 
+
+"Anything else sir?" Gilly asked.
+
+"You are doing a good job Gilly. I'm impressed." He pulled Gilly in an embrace
+and placed a gentle kiss on her forehead, "I make you interim Head of
+Snowdale."
+
+"You think she can do it?" Freya asked as the two crossed the edges of the
+Snowdale village into the icy wilderness of the north
