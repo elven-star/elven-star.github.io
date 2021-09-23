@@ -1412,3 +1412,50 @@ Snowdale."
 
 "You think she can do it?" Freya asked as the two crossed the edges of the
 Snowdale village into the icy wilderness of the north
+
+"We'll find out!" Kris gave a small, hopeful smile.
+
+---
+
+## Chapter 6
+
+<!--
+Part 1:
+	1. Kris and Freya reach the outskirts of the Moonspire an industrial
+	   city/empire. They could see the smoke rising beyond the final peaks of
+	   the Snowall mountains. 
+	2. The Moonspire is a surrounded by acres of green field, where farmers
+	   till the soil and toil to produce crop. Beyond the farm lands lies
+	   Moonspire surrounded by black walls
+	3. This part is all about the journey to the Moonspire. They are travelling
+	   with a band of merchants who venture into the north in order to find
+	   exotic game
+	4. Freya and Kris share a moment where Freya kisses Kris' cheeks. Kris
+	   loves Freya but doesn't want to confess as he firmly believes loving
+	   will result in death.
+
+Part 2:
+	1. Kris and Freya are inside the City Walls, Kris notices a lot of soldiers
+	   wearing the Elven Star Crest. He doesn't know what's going on. So he
+	   decides to Pay the King of Moonspire a visit
+	2. King of Moonspire and Kris have age old relations and King of Moonspire
+	   says that the Elven Star legion are paying him enough that he doesn't
+	   need to bend against Vumirian might and he'll keep them around.
+	3. Frustrated by King's pride and greed Kris leaves the Palace.
+
+Part 3:
+	1. Kris and Freya visit Maya next, she's an old friend of Kris'. She tells
+	   him to accept his past, to move on. To accept the emotions that burn
+	   underneath him. Kris asks about Elven Star Legion and finds out that
+	   they've a firm grasp over Moonspire and are planning to take control
+	   away from the King. She also tells about Growing Elven Influence over
+	   the Continent. 
+	2. Kris asks Maya about slave trade and where can he find his little Anna.
+	   She tells him that the slaves are generally traded in Old Capital. They
+	   Old Capital dukes are espcially hungry for virigin girls. 
+	3. Kris requests Maya to go to the Snowdale and train his people in martial
+	   skills. Sword fighting, Archery and strategic planning.
+	4. Maya agrees to do it for old times' sake.
+-->
+
+
