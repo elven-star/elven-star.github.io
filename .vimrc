@@ -2,6 +2,7 @@
 set nocompatible				" vim-specific settings, non-vi-compatible
 set backspace=indent,eol,start 	" Allow backspace in insert mode
 set number						" Line numbers
+set relativenumber
 set hidden						" Allow hidden buffers
 filetype plugin indent on		" Enable file type detection and do language-dependent indenting.
 set history=100					" Default = 8
@@ -14,7 +15,7 @@ set textwidth=0					" prevent Vim from automatically inserting line breaks
 set wrapmargin=0
 set formatoptions-=t			" Don't change wrapping on existing lines
 set formatoptions+=l			" Black magic
-
+au BufRead,BufNewFile *.md setlocal textwidth=80
 " # Install Plugins
 call plug#begin("~/.vim/autoload")
 	" ## Themes
@@ -30,6 +31,10 @@ call plug#begin("~/.vim/autoload")
 	Plug 'vim-airline/vim-airline'					" Airline bar
 	Plug 'scrooloose/syntastic'						" syntax info
 	Plug 'Raimondi/delimitmate'						" smart completion of delimiters
+	Plug 'dhruvasagar/vim-table-mode'				" create tables
+
+	"## Viwwiki
+	Plug 'vimwiki/vimwiki'
 call plug#end()
 
 " # Plugin Settings
@@ -54,4 +59,14 @@ set background=dark
 set t_Co=256			" 256 colors, terrible for most themes, but best for Tomorrow-Nights
 colorscheme Tomorrow-Night
 
+"vimwiki settings
 
+let wiki_1={}
+let wiki_1.path='~/vimwiki/'
+let wiki_1.path_html='~/vimwiki_html/'
+
+let wiki_2={}
+let wiki_2.path='~/privatewiki/'
+let wiki_2.path_html='~/privatewiki_html/'
+
+let g:vimwiki_list=[wiki_1,wiki_2]

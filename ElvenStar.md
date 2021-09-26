@@ -1458,4 +1458,58 @@ Part 3:
 	4. Maya agrees to do it for old times' sake.
 -->
 
+The wagon jolted Kris from his sleep as it rolled to a sudden stop. The mule that pulled the wagon lathered and refused to continue, "Let's stop." The merchant who drove the wagon said in an annoyed voice.
 
+Kris stopped stretching when he realised Freya was resting her head on his shoulders. *She looks...* Kris thought as his heart skipped a beat, *Absolutely beautiful.* He tucked a loose strand of her brown hair behind her ears and caressed her soft cheeks, "Freya..." he said softly.
+
+She groaned and slowly woke up, "Are we there yet?" Freya looked confused, "How long have I slept?" she looked around, "Last I remember we were a few days out of Snowdale..." Kris looked at her with astonishment and laughed out loud.
+
+"That was a week back!" Kris said getting out of the wagon and stretching his legs, "We are a day or so away from Moonspire."
+
+"Kris!" the merchant called from head of the caravan. 
+
+"I'll be right back," Kris said breaking a knuckle. He strode towards the head of the caravan and waited patiently for the merchant to finish watering the tired mules. Kris twisted his face with irritation and regretted having hitched a ride to Moonspire for Freya and himself. *She was tired of walking...* Kris thought to himself as he watched the pot bellied merchant feed the mules.
+
+"Pay up." the merchant put on of his hand forward and the other on his hips. Kris sighed and pulled out a small Vumirium coin from his pocket and handed it to him. 
+
+The merchant bit the coin and licked it to examine the authenticity of the coin. *He doesn't even know how to test Vumirium...* Kris sighed and waited for the merchant to pocket it. "Looks good to me! Who are you again? How did you find Vumirium?"
+
+"Does it matter?" Kris said turning on his heels and walking towards Freya who had just dropped out of the wagon and was stretching her legs. 
+
+"I don't want any trouble," the merchant said from behind, "Find food for the caravan." *I'm not your servant...* Kris was about to blurt out but he let his anger evaporate and raised his thumb in acknowledgement.
+
+"I don't like him." Freya said as Kris approached. Around them the servants and employees that the pot bellied merchant had hired were setting up camp. He could hear children cackling and twigs cracking. A couple of merchants took giggling whores away from the camp into the darkness of the forest that surrounded them. 
+
+Kris noticed a heavy-set mercanary eyeing Freya, *I dare you touch her.* he thought as came to stop right in front of her, "I don't like the lot."
+
+"I'm hungry." Freya said rubbing her belly, "It's getting cold." Kris took his dark black cloak off and handed it to Freya. The cold wind prickled his torso and calmed him. *Ana,* he thought, *I'm coming...* 
+
+"Let's go!" Freya called from the northen edge of the camp and Kris joined her. The cackling of children, the sound of swords rattling and whores moaning erotically slowly disappeared. Kris' eyed adjusted to the encompassing darkness. Kris looked up the see purple slowly pushing the orange out of the sky. 
+
+"It'll be night soon." Kris said.
+
+"I know!" Freya said as she let an arrow loose, "Found game already."
+
+*She's terrifying.* Kris thought as watched Freya observe her surroundings for a brief moment before loosing another arrow. *She's...* Kris stopped his thought before it could form and shifted his focus back on retrieving Ana.
+
+"Will she be alright?" Kris said loudly.
+
+"Ana?" Freya retrieved the kill and continued to walk deeper into the forest. "Ofcourse! She's a strong girl."
+
+*I hope they don't ...* Kri shook his head to let the ugly thought disappear, "I'll burn this whole world down..." he muttered incomprehensively.
+
+"We'll find her soon!" Freya said as she shot a small rabbit racing towards it burrow. Something moved in the corner of his eyes and Kris picked up a long, branch from the ground, "What is it?" Freya asked.
+
+"Someone's following us." Kris whispered almost inaudibly. 
+
+"Do you think the merchant..."
+
+"Yes!" Kris thought as he tighened his grip around the makeshift shaft, "He wants the vumirium."
+
+A twig cracked and then another. Whoever was following approached without making any attempt to conceal their presence. Kris relaxed himself, *No... I cannot. It'll take time...* Someone giggled and the mercenary who was eyeing Freya broke out from the darkness of the woods with a giggling, naked whore.
+
+"Seems like this is occupied." the whore chuckled. Kris looked over his shoulders and found Freya blushing pink.
+
+The mercenary looked at Freya with lust and the disappeared back into the woods with the woman. 
+
+"Let's go." Freya said holding 4 large game in her hands.Kris took them from her and together they walked back towards the camp the merchant had quickly setup. He handed the game to the caravan cook who thanked them for their services. *What a nice fellow.* Kris thought and found Freya still blushing pink.
