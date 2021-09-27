@@ -1458,58 +1458,173 @@ Part 3:
 	4. Maya agrees to do it for old times' sake.
 -->
 
-The wagon jolted Kris from his sleep as it rolled to a sudden stop. The mule that pulled the wagon lathered and refused to continue, "Let's stop." The merchant who drove the wagon said in an annoyed voice.
+The wagon jolted Kris from his sleep as it rolled to a sudden stop. The mule
+that pulled the wagon lathered and refused to continue, "Let's stop." The
+merchant who drove the wagon said in an annoyed voice.
 
-Kris stopped stretching when he realised Freya was resting her head on his shoulders. *She looks...* Kris thought as his heart skipped a beat, *Absolutely beautiful.* He tucked a loose strand of her brown hair behind her ears and caressed her soft cheeks, "Freya..." he said softly.
+Kris stopped stretching when he realised Freya was resting her head on his
+shoulders. *She looks...* Kris thought as his heart skipped a beat, *Absolutely
+beautiful.* He tucked a loose strand of her brown hair behind her ears and
+caressed her soft cheeks, "Freya..." he said softly.
 
-She groaned and slowly woke up, "Are we there yet?" Freya looked confused, "How long have I slept?" she looked around, "Last I remember we were a few days out of Snowdale..." Kris looked at her with astonishment and laughed out loud.
+She groaned and slowly woke up, "Are we there yet?" Freya looked confused, "How
+long have I slept?" she looked around, "Last I remember we were a few days out
+of Snowdale..." Kris looked at her with astonishment and laughed out loud.
 
-"That was a week back!" Kris said getting out of the wagon and stretching his legs, "We are a day or so away from Moonspire."
+"That was a week back!" Kris said getting out of the wagon and stretching his
+legs, "We are a day or so away from Moonspire."
 
 "Kris!" the merchant called from head of the caravan. 
 
-"I'll be right back," Kris said breaking a knuckle. He strode towards the head of the caravan and waited patiently for the merchant to finish watering the tired mules. Kris twisted his face with irritation and regretted having hitched a ride to Moonspire for Freya and himself. *She was tired of walking...* Kris thought to himself as he watched the pot bellied merchant feed the mules.
+"I'll be right back," Kris said breaking a knuckle. He strode towards the head
+of the caravan and waited patiently for the merchant to finish watering the
+tired mules. Kris twisted his face with irritation and regretted having hitched
+a ride to Moonspire for Freya and himself. *She was tired of walking...* Kris
+thought to himself as he watched the pot bellied merchant feed the mules.
 
-"Pay up." the merchant put on of his hand forward and the other on his hips. Kris sighed and pulled out a small Vumirium coin from his pocket and handed it to him. 
+"Pay up." the merchant put on of his hand forward and the other on his hips.
+Kris sighed and pulled out a small Vumirium coin from his pocket and handed it
+to him. 
 
-The merchant bit the coin and licked it to examine the authenticity of the coin. *He doesn't even know how to test Vumirium...* Kris sighed and waited for the merchant to pocket it. "Looks good to me! Who are you again? How did you find Vumirium?"
+The merchant bit the coin and licked it to examine the authenticity of the
+coin. *He doesn't even know how to test Vumirium...* Kris sighed and waited for
+the merchant to pocket it. "Looks good to me! Who are you again? How did you
+find Vumirium?"
 
-"Does it matter?" Kris said turning on his heels and walking towards Freya who had just dropped out of the wagon and was stretching her legs. 
+"Does it matter?" Kris said turning on his heels and walking towards Freya who
+had just dropped out of the wagon and was stretching her legs. 
 
-"I don't want any trouble," the merchant said from behind, "Find food for the caravan." *I'm not your servant...* Kris was about to blurt out but he let his anger evaporate and raised his thumb in acknowledgement.
+"I don't want any trouble," the merchant said from behind, "Find food for the
+caravan." *I'm not your servant...* Kris was about to blurt out but he let his
+anger evaporate and raised his thumb in acknowledgement.
 
-"I don't like him." Freya said as Kris approached. Around them the servants and employees that the pot bellied merchant had hired were setting up camp. He could hear children cackling and twigs cracking. A couple of merchants took giggling whores away from the camp into the darkness of the forest that surrounded them. 
+"I don't like him." Freya said as Kris approached. Around them the servants and
+employees that the pot bellied merchant had hired were setting up camp. He
+could hear children cackling and twigs cracking. A couple of merchants took
+giggling whores away from the camp into the darkness of the forest that
+surrounded them. 
 
-Kris noticed a heavy-set mercanary eyeing Freya, *I dare you touch her.* he thought as came to stop right in front of her, "I don't like the lot."
+Kris noticed a heavy-set mercanary eyeing Freya, *I dare you touch her.* he
+thought as came to stop right in front of her, "I don't like the lot."
 
-"I'm hungry." Freya said rubbing her belly, "It's getting cold." Kris took his dark black cloak off and handed it to Freya. The cold wind prickled his torso and calmed him. *Ana,* he thought, *I'm coming...* 
+"I'm hungry." Freya said rubbing her belly, "It's getting cold." Kris took his
+dark black cloak off and handed it to Freya. The cold wind prickled his torso
+and calmed him. *Ana,* he thought, *I'm coming...* 
 
-"Let's go!" Freya called from the northen edge of the camp and Kris joined her. The cackling of children, the sound of swords rattling and whores moaning erotically slowly disappeared. Kris' eyed adjusted to the encompassing darkness. Kris looked up the see purple slowly pushing the orange out of the sky. 
+"Let's go!" Freya called from the northen edge of the camp and Kris joined her.
+The cackling of children, the sound of swords rattling and whores moaning
+erotically slowly disappeared. Kris' eyed adjusted to the encompassing
+darkness. Kris looked up the see purple slowly pushing the orange out of the
+sky. 
 
 "It'll be night soon." Kris said.
 
 "I know!" Freya said as she let an arrow loose, "Found game already."
 
-*She's terrifying.* Kris thought as watched Freya observe her surroundings for a brief moment before loosing another arrow. *She's...* Kris stopped his thought before it could form and shifted his focus back on retrieving Ana.
+*She's terrifying.* Kris thought as watched Freya observe her surroundings for
+a brief moment before loosing another arrow. *She's...* Kris stopped his
+thought before it could form and shifted his focus back on retrieving Ana.
 
 "Will she be alright?" Kris said loudly.
 
-"Ana?" Freya retrieved the kill and continued to walk deeper into the forest. "Ofcourse! She's a strong girl."
+"Ana?" Freya retrieved the kill and continued to walk deeper into the forest.
+"Ofcourse! She's a strong girl."
 
-*I hope they don't ...* Kri shook his head to let the ugly thought disappear, "I'll burn this whole world down..." he muttered incomprehensively.
+*I hope they don't ...* Kri shook his head to let the ugly thought disappear,
+"I'll burn this whole world down..." he muttered incomprehensively.
 
-"We'll find her soon!" Freya said as she shot a small rabbit racing towards it burrow. Something moved in the corner of his eyes and Kris picked up a long, branch from the ground, "What is it?" Freya asked.
+"We'll find her soon!" Freya said as she shot a small rabbit racing towards it
+burrow. Something moved in the corner of his eyes and Kris picked up a long,
+branch from the ground, "What is it?" Freya asked.
 
 "Someone's following us." Kris whispered almost inaudibly. 
 
 "Do you think the merchant..."
 
-"Yes!" Kris thought as he tighened his grip around the makeshift shaft, "He wants the vumirium."
+"Yes!" Kris thought as he tighened his grip around the makeshift shaft, "He
+wants the vumirium."
 
-A twig cracked and then another. Whoever was following approached without making any attempt to conceal their presence. Kris relaxed himself, *No... I cannot. It'll take time...* Someone giggled and the mercenary who was eyeing Freya broke out from the darkness of the woods with a giggling, naked whore.
+A twig cracked and then another. Whoever was following approached without
+making any attempt to conceal their presence. Kris relaxed himself, *No... I
+cannot. It'll take time...* Someone giggled and the mercenary who was eyeing
+Freya broke out from the darkness of the woods with a giggling, naked whore.
 
-"Seems like this is occupied." the whore chuckled. Kris looked over his shoulders and found Freya blushing pink.
+"Seems like this is occupied." the whore chuckled. Kris looked over his
+shoulders and found Freya blushing pink.
 
-The mercenary looked at Freya with lust and the disappeared back into the woods with the woman. 
+The mercenary looked at Freya with lust and the disappeared back into the woods
+with the woman. 
 
-"Let's go." Freya said holding 4 large game in her hands.Kris took them from her and together they walked back towards the camp the merchant had quickly setup. He handed the game to the caravan cook who thanked them for their services. *What a nice fellow.* Kris thought and found Freya still blushing pink.
+"Let's go." Freya said holding 4 large game in her hands.Kris took them from
+her and together they walked back towards the camp the merchant had quickly
+setup. He handed the game to the caravan cook who thanked them for their
+services. *What a nice fellow.* Kris thought and found Freya still blushing
+pink.
+
+---
+
+"That was delicious!" Freya told chewing the final pieces of the food the cook had served. Kris agreed as he dumped the bones in the ground and got up to stretch his legs. The gentle breeze that flowed through the thicket chilled him and he wrapped his jacket around him. *It is getting cold...* he thought. He looked at Freya and smiled inside for a brief moment. 
+
+"We'll leave at the break of dawn." The merchant told as he drank water from his skin and passed it around, "Marco." he looked around. The mercanary who had been eyeing Freya, a man with barrel shaped chest and a scar running across his cheeks broke free from th whore and waited for his ordered. "You'll be on the guard duty tonight." the merchant said. 
+
+"Let's go!" Kris offered his hands to Freya and pulled her up to her feet. Kris saw her turn pink at the simple gesture. *She's just so...* Kris tried to find a word that described Freya but failed, *Special.*
+
+He led Freya through the camp and into the woods. Crickets chirped and a snake slithered somewhere close. Kris allowed his eyes to adjust to the darkness and found Freya stumbling behind him. He held her shoulders and steadied her as he led her through the woods. 
+
+"What are you trying to do Kris?" she asked. Kris felt her blushing in the dark. *That is not what... Oh never mind.* he thought to himself.
+
+"Tonight," Kris said as he took of his cloak and wrapped it around Freya. He found an almost straight branch and started whittling it down with a knife he had smuggled out of the camp. "Tonight, we'll be attacked! They want to steal the Vumirium."
+
+"Why do you think it'll happen tonight?" Freya asked finding a stump to sit on.
+
+"Think about it..." Kris examined the branch again, "We've been on guard duty every night. Why did the merchant order Marco to be the guard tonight?"
+
+"Maybe," Freya said scratching her chin, "He's being nice to us!"
+
+Kris looked up and chuckled, "You think?"
+
+"Okay maybe he's  not being nice..." Freya shrugged, "But why does he want to steal Vumirium?"
+
+"Freya, Honey," Freya blushed at being called honey, "Vumirium is precious... A single coin is worth a 1000 Moonspire Marks... That's about 100 times more that a gold coin of similar shape."
+
+Kris noticed Freya's eyes widen and her jaw drop, "Really? Why?"
+
+"There are so many reasons for Vumirium's worth," Kris began explaining, "First-- it is because of Vumirism. People have connected  this metal to Lord Vumir and the worth has sky rocketed. Second-- Vumirium has special metallurgical properties, it doesn't erode, it doesn't react or rust. It is extremely easy to work on and it retains lustre better than Gold and Silver-- that also explains why Vumirian Church has associated the metal to Lord Vumir.
+
+"It is believed that Lord Vumir had mined the metal himself and casted a Vumirium goblet-- The one they have kept in the Vumirian Church-- and a ring that he gave to the King of Vumiria.
+
+"Lastly-- the worth of Vumirium is in it's supply. Majority of Vumirium in circulation had been mined over a thousand years ago, during the time of Lord Vumir himself. The extreme rarity of the metal has been the reason why it is so expensive."
+
+"That explains why we were attacked."
+
+"No. It doesn't." Kris explained, "No one knows that we mine Vumirium. No one knows about the size of our deposits. How did the attackers, the 5th Legion of the Elven Star know? Only a few merchants in the Moonspire Court know about me..." Kris heard someone approach. *He's being careful this time.* Kris smiled in the darkness and got to his feet and formed a shield in front of Freya.
+
+"I'm not going to be much help." she whispered from behind, "I can barely see you." *That never occured... How can he see?* Kris thought as he waited for the mercanary to break into the glade.
+
+Kris tightened his grip around the staff that he had carved and calmed himself, "Marco." Kris challenged the mercenary who slowly became visible. "You are going to be seriously handicapped here-- in this darkness." 
+
+"Kristopher -- the Impaler." he called and Kris went stiff at being called the Impaler. *It has been a long time since I've been called the Impaler.* he thought.
+
+"Who are you?" Kris asked with nervous energy. Marco circled the Kris and Freya and smiled.
+
+"Did you forget already?" Marco pulled out a Blue Blade from it's scabbard, "You did this." he pointed at his scar with his Blade.
+
+"It can't be!" Kris swallowed.
+
+"You thought I died?" Marco gave a throaty laugh, "We are the same, Impaler."
+
+"We are not!" Kris fell into an attacking stance and kept the staff in front of him, "You use that cursed blade."
+
+"What about you Impaler?" Marco readied himself, "What about that cursed Flute? What about the Blood that stains your Flute? What about Riptide."
+
+"That is my past." Kris steeled himself, "I've given up Riptide."
+
+"You know where it is." Marco lowered himself in a weird stance, *Riptide.* Kris itched for the sword that he had buried a long time ago. A darkness formed in his heart a darkness that could enjoyed killing. *No. I'm not that person. Not anymore. I've Ana, I've Freya.*
+
+"I'm going to kill you."
+
+"Yes!" Marco said, "That is who you are. A killer. An Impaler."
+
+---
+
+
