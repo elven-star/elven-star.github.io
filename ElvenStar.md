@@ -1504,7 +1504,9 @@ could hear children cackling and twigs cracking. A couple of merchants took
 giggling whores away from the camp into the darkness of the forest that
 surrounded them. 
 
-Kris noticed a heavy-set mercanary eyeing Freya, *I dare you touch her.* he
+Kris noticed a heavy-set mercanary eyeing Freya, *I dare you touch her.* he20:11 redeploy.log
+-rwxrwxrwx 1 rshah rshah        478 Sep 10 01:47 script.sh
+
 thought as came to stop right in front of her, "I don't like the lot."
 
 "I'm hungry." Freya said rubbing her belly, "It's getting cold." Kris took his
@@ -1558,7 +1560,9 @@ with the woman.
 "Let's go." Freya said holding 4 large game in her hands.Kris took them from
 her and together they walked back towards the camp the merchant had quickly
 setup. He handed the game to the caravan cook who thanked them for their
-services. *What a nice fellow.* Kris thought and found Freya still blushing
+services. *What a nice fellow.* Kris thought and found Freya still blushing20:11 redeploy.log
+-rwxrwxrwx 1 rshah rshah        478 Sep 10 01:47 script.sh
+
 pink.
 
 ---
@@ -1627,4 +1631,44 @@ Kris tightened his grip around the staff that he had carved and calmed himself, 
 
 ---
 
+Kris towered over the lacerated Marco, "How are you still alive?" Kris pressed his flute against Marco's throat.
 
+Marco laughed and blood splurted out of his mouth, "You are a killer." A thing line of blood dripped down the side of his mouth, "Go ahead, do what you do best!"
+
+"How are you still alive?" Kris asked again.
+
+"Impaler," Marco gave a strained laugh, "Death looms over you."
+
+Kris turned around to look at Freya who had been shocked by the events that had transpired, *Love summons Death. Everytime.* Kris looked at Freya with sorrow filling the empty space in his heart. 
+
+"Good bye old friend." Kris held Marco's angry red eyes and slowly pierced his heart with his flute. Blood oozed from the puncture and pooled around him. Marco laughed and coughed blood. 
+
+"We'll meet soon." Marco said. Kris recalled the day, the fateful day when he had met Marco and tears pooled in his eyes as he waited for the death of an old friend. *How many times do I have to kill people I've held close.* Kris crashed to ground and sobbed uncontrollably. Marco gave a final laugh before lying still as a log of wood.
+
+*How many times have I killed?* his mind looked for an answer, *I cannot even count them all...* he sobbed and gasped for air. A heavy stone churned inside his stomach and threw back the dinner he had. *Why?* he thought. A grim thought crossed his mind, *Maybe I deserve to die?* he looked at his flute and tried to make up his mind, *Maybe I should Impale myself...* 
+
+"Kris..." he heard Freya's distant voice calling him, "Kris?" her voice tremored with worry and confusion.
+
+"Freya..." he could feel her soft hands running through his head. He could smell her sweet, earthy smell. *Love... Death... Murder...* He felt her soft bosom warming up his cold cheeks.
+
+"Kris..." Freya purred softly in his ears, "Ana needs you."
+
+"Ana..." a light pushed the growing darkness in his heart and he wiped his tears, *Ana.* Kris gave a half smile as he recalled a particularly mischievious prank Ana pulled on him. He wrapped his fingers around the bloodied flute and pulled it out from Marco's chest. *I can die someother time.*
+
+"Kris..." Freya was standing on her feet a few steps away and looked nervous, "What are we going to do now?"
+
+"Nothing." Kris said walking towards the camp, "We go back to the camp."
+
+Freya stretched her arms and locked it with Kris and the two marched silently towards the busy camp. The Fire had illuminated the dark forest and casted dancing shadows all around. Kris felt the heat from fire warm him up and he undid his coat and wrapped it around Freya. A musician -- who had joined the caravan recently sang a playful song. His sweet voice and cheerful melody calmed Kris down as he took a seat on a log opposite to the merchant who shifted in his seat.
+
+"Where is Marco?" merchant sparked a conversation as the musician fiddled on his lute.
+
+Kris looked at the merchant once and turned his attention back to the dancing flames. Merchant swallowed deeply and withdrew with his mercenaries to his tent. Kris looked over his shoulders and found Freya looking anxiously at the fire. He took her cold hand in his and gave it a gentle squeeze. She looked at him with conerned eyes, "What?"
+
+"Kris?" Freya asked resting her head on his shoulders.
+
+"Yes?"
+
+Freya didn't say a word and Kris didn't push her *She wants to know about the Impaler...* he let the dancing melody wash his sorrow away. The weight of Freya's head calmed him and her soft hands gave him strength that Riptide never offered. *Riptide* his hand itched and he squeezed Freya's hand a little harder.
+
+---
