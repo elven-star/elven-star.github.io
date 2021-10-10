@@ -1504,9 +1504,7 @@ could hear children cackling and twigs cracking. A couple of merchants took
 giggling whores away from the camp into the darkness of the forest that
 surrounded them. 
 
-Kris noticed a heavy-set mercanary eyeing Freya, *I dare you touch her.* he20:11 redeploy.log
--rwxrwxrwx 1 rshah rshah        478 Sep 10 01:47 script.sh
-
+Kris noticed a heavy-set mercanary eyeing Freya, *I dare you touch her.* he 
 thought as came to stop right in front of her, "I don't like the lot."
 
 "I'm hungry." Freya said rubbing her belly, "It's getting cold." Kris took his
@@ -1560,70 +1558,119 @@ with the woman.
 "Let's go." Freya said holding 4 large game in her hands.Kris took them from
 her and together they walked back towards the camp the merchant had quickly
 setup. He handed the game to the caravan cook who thanked them for their
-services. *What a nice fellow.* Kris thought and found Freya still blushing20:11 redeploy.log
--rwxrwxrwx 1 rshah rshah        478 Sep 10 01:47 script.sh
+services. *What a nice fellow.* Kris thought and found Freya still
+blushing20:11 redeploy.log -rwxrwxrwx 1 rshah rshah        478 Sep 10 01:47
+script.sh
 
 pink.
 
 ---
 
-"That was delicious!" Freya told chewing the final pieces of the food the cook had served. Kris agreed as he dumped the bones in the ground and got up to stretch his legs. The gentle breeze that flowed through the thicket chilled him and he wrapped his jacket around him. *It is getting cold...* he thought. He looked at Freya and smiled inside for a brief moment. 
+"That was delicious!" Freya told chewing the final pieces of the food the cook
+had served. Kris agreed as he dumped the bones in the ground and got up to
+stretch his legs. The gentle breeze that flowed through the thicket chilled him
+and he wrapped his jacket around him. *It is getting cold...* he thought. He
+looked at Freya and smiled inside for a brief moment. 
 
-"We'll leave at the break of dawn." The merchant told as he drank water from his skin and passed it around, "Marco." he looked around. The mercanary who had been eyeing Freya, a man with barrel shaped chest and a scar running across his cheeks broke free from th whore and waited for his ordered. "You'll be on the guard duty tonight." the merchant said. 
+"We'll leave at the break of dawn." The merchant told as he drank water from
+his skin and passed it around, "Marco." he looked around. The mercanary who had
+been eyeing Freya, a man with barrel shaped chest and a scar running across his
+cheeks broke free from th whore and waited for his ordered. "You'll be on the
+guard duty tonight." the merchant said. 
 
-"Let's go!" Kris offered his hands to Freya and pulled her up to her feet. Kris saw her turn pink at the simple gesture. *She's just so...* Kris tried to find a word that described Freya but failed, *Special.*
+"Let's go!" Kris offered his hands to Freya and pulled her up to her feet. Kris
+saw her turn pink at the simple gesture. *She's just so...* Kris tried to find
+a word that described Freya but failed, *Special.*
 
-He led Freya through the camp and into the woods. Crickets chirped and a snake slithered somewhere close. Kris allowed his eyes to adjust to the darkness and found Freya stumbling behind him. He held her shoulders and steadied her as he led her through the woods. 
+He led Freya through the camp and into the woods. Crickets chirped and a snake
+slithered somewhere close. Kris allowed his eyes to adjust to the darkness and
+found Freya stumbling behind him. He held her shoulders and steadied her as he
+led her through the woods. 
 
-"What are you trying to do Kris?" she asked. Kris felt her blushing in the dark. *That is not what... Oh never mind.* he thought to himself.
+"What are you trying to do Kris?" she asked. Kris felt her blushing in the
+dark. *That is not what... Oh never mind.* he thought to himself.
 
-"Tonight," Kris said as he took of his cloak and wrapped it around Freya. He found an almost straight branch and started whittling it down with a knife he had smuggled out of the camp. "Tonight, we'll be attacked! They want to steal the Vumirium."
+"Tonight," Kris said as he took of his cloak and wrapped it around Freya. He
+found an almost straight branch and started whittling it down with a knife he
+had smuggled out of the camp. "Tonight, we'll be attacked! They want to steal
+the Vumirium."
 
 "Why do you think it'll happen tonight?" Freya asked finding a stump to sit on.
 
-"Think about it..." Kris examined the branch again, "We've been on guard duty every night. Why did the merchant order Marco to be the guard tonight?"
+"Think about it..." Kris examined the branch again, "We've been on guard duty
+every night. Why did the merchant order Marco to be the guard tonight?"
 
 "Maybe," Freya said scratching her chin, "He's being nice to us!"
 
 Kris looked up and chuckled, "You think?"
 
-"Okay maybe he's  not being nice..." Freya shrugged, "But why does he want to steal Vumirium?"
+"Okay maybe he's  not being nice..." Freya shrugged, "But why does he want to
+steal Vumirium?"
 
-"Freya, Honey," Freya blushed at being called honey, "Vumirium is precious... A single coin is worth a 1000 Moonspire Marks... That's about 100 times more that a gold coin of similar shape."
+"Freya, Honey," Freya blushed at being called honey, "Vumirium is precious... A
+single coin is worth a 1000 Moonspire Marks... That's about 100 times more that
+a gold coin of similar shape."
 
 Kris noticed Freya's eyes widen and her jaw drop, "Really? Why?"
 
-"There are so many reasons for Vumirium's worth," Kris began explaining, "First-- it is because of Vumirism. People have connected  this metal to Lord Vumir and the worth has sky rocketed. Second-- Vumirium has special metallurgical properties, it doesn't erode, it doesn't react or rust. It is extremely easy to work on and it retains lustre better than Gold and Silver-- that also explains why Vumirian Church has associated the metal to Lord Vumir.
+"There are so many reasons for Vumirium's worth," Kris began explaining,
+"First-- it is because of Vumirism. People have connected  this metal to Lord
+Vumir and the worth has sky rocketed. Second-- Vumirium has special
+metallurgical properties, it doesn't erode, it doesn't react or rust. It is
+extremely easy to work on and it retains lustre better than Gold and Silver--
+that also explains why Vumirian Church has associated the metal to Lord Vumir.
 
-"It is believed that Lord Vumir had mined the metal himself and casted a Vumirium goblet-- The one they have kept in the Vumirian Church-- and a ring that he gave to the King of Vumiria.
+"It is believed that Lord Vumir had mined the metal himself and casted a
+Vumirium goblet-- The one they have kept in the Vumirian Church-- and a ring
+that he gave to the King of Vumiria.
 
-"Lastly-- the worth of Vumirium is in it's supply. Majority of Vumirium in circulation had been mined over a thousand years ago, during the time of Lord Vumir himself. The extreme rarity of the metal has been the reason why it is so expensive."
+"Lastly-- the worth of Vumirium is in it's supply. Majority of Vumirium in
+circulation had been mined over a thousand years ago, during the time of Lord
+Vumir himself. The extreme rarity of the metal has been the reason why it is so
+expensive."
 
 "That explains why we were attacked."
 
-"No. It doesn't." Kris explained, "No one knows that we mine Vumirium. No one knows about the size of our deposits. How did the attackers, the 5th Legion of the Elven Star know? Only a few merchants in the Moonspire Court know about me..." Kris heard someone approach. *He's being careful this time.* Kris smiled in the darkness and got to his feet and formed a shield in front of Freya.
+"No. It doesn't." Kris explained, "No one knows that we mine Vumirium. No one
+knows about the size of our deposits. How did the attackers, the 5th Legion of
+the Elven Star know? Only a few merchants in the Moonspire Court know about
+me..." Kris heard someone approach. *He's being careful this time.* Kris smiled
+in the darkness and got to his feet and formed a shield in front of Freya.
 
-"I'm not going to be much help." she whispered from behind, "I can barely see you." *That never occured... How can he see?* Kris thought as he waited for the mercanary to break into the glade.
+"I'm not going to be much help." she whispered from behind, "I can barely see
+you." *That never occured... How can he see?* Kris thought as he waited for the
+mercanary to break into the glade.
 
-Kris tightened his grip around the staff that he had carved and calmed himself, "Marco." Kris challenged the mercenary who slowly became visible. "You are going to be seriously handicapped here-- in this darkness." 
+Kris tightened his grip around the staff that he had carved and calmed himself,
+"Marco." Kris challenged the mercenary who slowly became visible. "You are
+going to be seriously handicapped here-- in this darkness." 
 
-"Kristopher -- the Impaler." he called and Kris went stiff at being called the Impaler. *It has been a long time since I've been called the Impaler.* he thought.
+"Kristopher -- the Impaler." he called and Kris went stiff at being called the
+Impaler. *It has been a long time since I've been called the Impaler.* he
+thought.
 
-"Who are you?" Kris asked with nervous energy. Marco circled the Kris and Freya and smiled.
+"Who are you?" Kris asked with nervous energy. Marco circled the Kris and Freya
+and smiled.
 
-"Did you forget already?" Marco pulled out a Blue Blade from it's scabbard, "You did this." he pointed at his scar with his Blade.
+"Did you forget already?" Marco pulled out a Blue Blade from it's scabbard,
+"You did this." he pointed at his scar with his Blade.
 
 "It can't be!" Kris swallowed.
 
 "You thought I died?" Marco gave a throaty laugh, "We are the same, Impaler."
 
-"We are not!" Kris fell into an attacking stance and kept the staff in front of him, "You use that cursed blade."
+"We are not!" Kris fell into an attacking stance and kept the staff in front of
+him, "You use that cursed blade."
 
-"What about you Impaler?" Marco readied himself, "What about that cursed Flute? What about the Blood that stains your Flute? What about Riptide."
+"What about you Impaler?" Marco readied himself, "What about that cursed Flute?
+What about the Blood that stains your Flute? What about Riptide."
 
 "That is my past." Kris steeled himself, "I've given up Riptide."
 
-"You know where it is." Marco lowered himself in a weird stance, *Riptide.* Kris itched for the sword that he had buried a long time ago. A darkness formed in his heart a darkness that could enjoyed killing. *No. I'm not that person. Not anymore. I've Ana, I've Freya.*
+"You know where it is." Marco lowered himself in a weird stance, *Riptide.*
+Kris itched for the sword that he had buried a long time ago. A darkness formed
+in his heart a darkness that could enjoyed killing. *No. I'm not that person.
+Not anymore. I've Ana, I've Freya.*
 
 "I'm going to kill you."
 
@@ -1631,44 +1678,179 @@ Kris tightened his grip around the staff that he had carved and calmed himself, 
 
 ---
 
-Kris towered over the lacerated Marco, "How are you still alive?" Kris pressed his flute against Marco's throat.
+Kris towered over the lacerated Marco, "How are you still alive?" Kris pressed
+his flute against Marco's throat.
 
-Marco laughed and blood splurted out of his mouth, "You are a killer." A thing line of blood dripped down the side of his mouth, "Go ahead, do what you do best!"
+Marco laughed and blood splurted out of his mouth, "You are a killer." A thing
+line of blood dripped down the side of his mouth, "Go ahead, do what you do
+best!"
 
 "How are you still alive?" Kris asked again.
 
 "Impaler," Marco gave a strained laugh, "Death looms over you."
 
-Kris turned around to look at Freya who had been shocked by the events that had transpired, *Love summons Death. Everytime.* Kris looked at Freya with sorrow filling the empty space in his heart. 
+Kris turned around to look at Freya who had been shocked by the events that had
+transpired, *Love summons Death. Everytime.* Kris looked at Freya with sorrow
+filling the empty space in his heart. 
 
-"Good bye old friend." Kris held Marco's angry red eyes and slowly pierced his heart with his flute. Blood oozed from the puncture and pooled around him. Marco laughed and coughed blood. 
+"Good bye old friend." Kris held Marco's angry red eyes and slowly pierced his
+heart with his flute. Blood oozed from the puncture and pooled around him.
+Marco laughed and coughed blood. 
 
-"We'll meet soon." Marco said. Kris recalled the day, the fateful day when he had met Marco and tears pooled in his eyes as he waited for the death of an old friend. *How many times do I have to kill people I've held close.* Kris crashed to ground and sobbed uncontrollably. Marco gave a final laugh before lying still as a log of wood.
+"We'll meet soon." Marco said. Kris recalled the day, the fateful day when he
+had met Marco and tears pooled in his eyes as he waited for the death of an old
+friend. *How many times do I have to kill people I've held close.* Kris crashed
+to ground and sobbed uncontrollably. Marco gave a final laugh before lying
+still as a log of wood.
 
-*How many times have I killed?* his mind looked for an answer, *I cannot even count them all...* he sobbed and gasped for air. A heavy stone churned inside his stomach and threw back the dinner he had. *Why?* he thought. A grim thought crossed his mind, *Maybe I deserve to die?* he looked at his flute and tried to make up his mind, *Maybe I should Impale myself...* 
+*How many times have I killed?* his mind looked for an answer, *I cannot even
+count them all...* he sobbed and gasped for air. A heavy stone churned inside
+his stomach and threw back the dinner he had. *Why?* he thought. A grim thought
+crossed his mind, *Maybe I deserve to die?* he looked at his flute and tried to
+make up his mind, *Maybe I should Impale myself...* 
 
-"Kris..." he heard Freya's distant voice calling him, "Kris?" her voice tremored with worry and confusion.
+"Kris..." he heard Freya's distant voice calling him, "Kris?" her voice
+tremored with worry and confusion.
 
-"Freya..." he could feel her soft hands running through his head. He could smell her sweet, earthy smell. *Love... Death... Murder...* He felt her soft bosom warming up his cold cheeks.
+"Freya..." he could feel her soft hands running through his head. He could
+smell her sweet, earthy smell. *Love... Death... Murder...* He felt her soft
+bosom warming up his cold cheeks.
 
 "Kris..." Freya purred softly in his ears, "Ana needs you."
 
-"Ana..." a light pushed the growing darkness in his heart and he wiped his tears, *Ana.* Kris gave a half smile as he recalled a particularly mischievious prank Ana pulled on him. He wrapped his fingers around the bloodied flute and pulled it out from Marco's chest. *I can die someother time.*
+"Ana..." a light pushed the growing darkness in his heart and he wiped his
+tears, *Ana.* Kris gave a half smile as he recalled a particularly mischievious
+prank Ana pulled on him. He wrapped his fingers around the bloodied flute and
+pulled it out from Marco's chest. *I can die someother time.*
 
-"Kris..." Freya was standing on her feet a few steps away and looked nervous, "What are we going to do now?"
+"Kris..." Freya was standing on her feet a few steps away and looked nervous,
+"What are we going to do now?"
 
 "Nothing." Kris said walking towards the camp, "We go back to the camp."
 
-Freya stretched her arms and locked it with Kris and the two marched silently towards the busy camp. The Fire had illuminated the dark forest and casted dancing shadows all around. Kris felt the heat from fire warm him up and he undid his coat and wrapped it around Freya. A musician -- who had joined the caravan recently sang a playful song. His sweet voice and cheerful melody calmed Kris down as he took a seat on a log opposite to the merchant who shifted in his seat.
+Freya stretched her arms and locked it with Kris and the two marched silently
+towards the busy camp. The Fire had illuminated the dark forest and casted
+dancing shadows all around. Kris felt the heat from fire warm him up and he
+undid his coat and wrapped it around Freya. A musician -- who had joined the
+caravan recently sang a playful song. His sweet voice and cheerful melody
+calmed Kris down as he took a seat on a log opposite to the merchant who
+shifted in his seat.
 
-"Where is Marco?" merchant sparked a conversation as the musician fiddled on his lute.
+"Where is Marco?" merchant sparked a conversation as the musician fiddled on
+his lute.
 
-Kris looked at the merchant once and turned his attention back to the dancing flames. Merchant swallowed deeply and withdrew with his mercenaries to his tent. Kris looked over his shoulders and found Freya looking anxiously at the fire. He took her cold hand in his and gave it a gentle squeeze. She looked at him with conerned eyes, "What?"
+Kris looked at the merchant once and turned his attention back to the dancing
+flames. Merchant swallowed deeply and withdrew with his mercenaries to his
+tent. Kris looked over his shoulders and found Freya looking anxiously at the
+fire. He took her cold hand in his and gave it a gentle squeeze. She looked at
+him with conerned eyes, "What?"
 
 "Kris?" Freya asked resting her head on his shoulders.
 
 "Yes?"
 
-Freya didn't say a word and Kris didn't push her *She wants to know about the Impaler...* he let the dancing melody wash his sorrow away. The weight of Freya's head calmed him and her soft hands gave him strength that Riptide never offered. *Riptide* his hand itched and he squeezed Freya's hand a little harder.
+Freya didn't say a word and Kris didn't push her *She wants to know about the
+Impaler...* he let the dancing melody wash his sorrow away. The weight of
+Freya's head calmed him and her soft hands gave him strength that Riptide never
+offered. *Riptide* his hand itched and he squeezed Freya's hand a little
+harder.
 
 ---
+
+
+## Chapter 7
+
+<!--
+Part 1:
+
+Freya and Kris finally enter through the city walls. The city wall is heavily
+guarded by soldiers wearing Black uniform. The wore a cresent shaped crest on
+their shoulders and carried bronze sword on their hips.
+
+Kris tells Freya last time he had come to Moonspire it was not heavily guarded
+and soldiers did not carry weapons. They had cudgels and staff to keep the
+crowd in check. (Kris had visited Moonspire 6 months back. Last time he had
+sold more vumirium in the black market.)
+
+Kris and Freya eat Moonspire delicacy in a local pub. Kris notices that people
+have changed. Their attitudes have changed they are more aggressive.
+(The thugs are more aggressive/Commoners feel angry.)
+
+Kris and Freya find themselves a room to rest. They share a bed together.
+Next Morning Kris and Freya go out to meet Maya. 
+
+Kris and Maya talk about their past. Maya tells Kris to let the past go. He is
+not responsible for it. Kris remains silent. Maya tells Kris that he should 
+embrace what life has given-- Freya.
+
+Kris tells Maya that he had a bout with Marco. Maya says, things are changing 
+dead are returning (basically the people from their shared past are coming...)
+Kris should be careful. 
+
+------------- Side comment --------------
+- Kris, Maya, Marco, Brock, Georgia and Valerie  fought side by side
+- Georgia, Marco's wife is killed buy Kris in an accident.
+- Marco swears he'll avenge her and has been after Kris for Eons.
+- All this happens When Kris had taken the identity of a soldier in Vumirian
+before he came to Snowdale
+- Marco and Kris fight. Kris defeats Marco. Kris believes he has killed Marco
+and mourns. He gives up his sword to Valerie who takes it away for safekeeping
+Brock takes to sea. Maya settles in Moonspire and Kris establishes Snowdale.
+- Marco, who Kris thought had died is alive and he hunts for Kris across the
+continent, training himself and establishing a band of sellswords.
+- Valerie gives birth to Vanessa-- Who inherits Kris' sword Riptide
+-->
+
+Kris was awake when the sun had began to push the darkness of the night with
+it's light, infact he didn't sleep like always. Freya shuffled next to him as 
+he gently ran his fingers through her hair, *She's so...* his thought were cut
+off by the sound of the metal utensils clinging together as the cook prepared
+for breakfast.
+
+"Good morning Kris!" he said as he passed by. 
+
+*Riptide...* Kris thought as his fingers itched to grasp his sword. Sighing, 
+he got to his feet and took the staff and walked away towards the rare. 
+
+*It needs a name.* Kris walked slowly into the forest, croutching. He had
+carved the staff during the night in hope of getting rid of the severe itch he
+felt in his hands.
+
+Kris stopped short when he realized he had aimlessly wandered in the glade
+where he fought Marco. *Old Friend.* he looked at the cold, blue corpse and
+a tear swelled in his eyes. *I'm sorry...* Kris knelt besides the mercenary,
+*I'm sorry for everything I did.* He sighed and began digging a grave for the 
+one lost in the glade. 
+
+*What should I name it?* he thought as he continued to go deeper into the
+ground. He focused on the name and grave to push back at the flood of memories
+that wanted to crash against him and destroy. His hands itched as the continued
+to dig with his bare hands. *What should I name it?* he thought again.
+
+*Nightglade.* he thought as he carefully dropped Marco into the grave and 
+filled it up. *Nightglade.* he wrapped his fingers around the straight, smooth
+staff and swung it around him with a flourish.
+
+*Nightglade.* he thought as he felt the center of mass of the wooden staff.
+
+He nodded to himself and started back towards the camp, covered in a thin, 
+twinkling sheen of sweat. *Freya.* he thought with a smile and then raised an
+eyebrow, *When did thought of Ana got replaced by Freya's?* he sighed, *I 
+still need to save my little Ana.* growing frustrated. 
+
+*Freya.* he thought again when he saw Freya's beautiful brown hair dancing
+behind her as she stretched and looked around the camp, "Kris." she called out
+when she saw him coming towards her. Kris' felt an surge of emotion in his
+heart and for an instance he forgot about Ana. *No. focus on Ana.* he wrapped
+her hands around her, *I need to save her.*
+
+"What is wrong with you?" Freya said with a raised eyebrow, "You look all 
+twisted and wound up?"
+
+"Nothing," *I'm falling in love with you, when I'm desperately trying to save
+my little Ana...* he wrapped her arms around her shoulder and got in line
+behind a young boy waiting to get his first meal of the day.
+
+---
+
+
