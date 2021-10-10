@@ -1,3 +1,4 @@
 # Excludes
 token.md
 *.code-workspace
+*.swp
