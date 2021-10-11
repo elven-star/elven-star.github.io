@@ -1853,4 +1853,92 @@ behind a young boy waiting to get his first meal of the day.
 
 ---
 
+The city walls were finally visible. Kris decided to get off the cart and walk
+the final lap. "Stop." he knocked on the wagon wall and the driver rolled it to
+stop.
+
+"What are you doing?" Freya asked wrapping Kris' cloak tightly around her 
+shoulders.
+
+"I'm going to walk the final lap." he said looking towards Moonspire.
+*Something doesn't feel right here.* he thought to himself. The sky over the
+city was shroudded with dark black clouds. Kris stared across the distance
+and found the black wall that enclosed the city between itself and the 
+crescent shaped mountain jotted with soldiers. *Hmm.* he thought scratching 
+his beard. 
+
+The caravan continued to roll towards the city and Kris followed on foot, 
+"You'll tire yourself." Freya called out lifting the cloth at the mouth of the
+wagon up and peeking out. 
+
+"Don't worry." he said as continued to walk, flourishing it with his staff.
+*Nightglade.* As the caravan came closer to city Kris was once agains stunned
+by the shear size of the towering wall that rose over fifty feet.
+
+"That is huge." Freya said jumping out of the moving wagon, "Who built it?"
+
+"It was built by the first King of Moonspire." Kris said *Why are there so 
+many soldiers?* 
+
+"What is the story?" Freya sighed, drawing Kris's attention.
+
+"Moonspire was constantly sacked by Vumirian soldiers." Kris said, "Every
+summer the Vumirian soldiers would match up north and would sack the fertile
+lands of Moonspire and it granaries looted."
+
+"King Mane, the first King of Moonspire, ordered his engineers to design a 
+wall that would thwart the attaks by Vumirian soldiers. The engineers worked
+day and night and over the course of a chilly winter erected that wall."
+
+Kris paused for a dramatic effect, "That wall stood against the Vumirian 
+attacks for decades and centuries, before it finally crumbled with the advent
+of modern, strategic warefare." 
+
+"But it still stands..." Freya interjected.
+
+"Yes it stands." Kris nodded, "But the proud city that once stood against 
+Vumirian might fell under the Vumirian Crown once and for all." 
+
+Kris let that story sink in. He continued to inspect the caravans that moved
+towards the city from different directions. *I count ten. Most of them bear 
+Moonspire Flag. That one bears Vumirian Flag.* Kris thought with a raised 
+eyebrow. *What is going on?*
+
+"Come!" he grabbed Freya hands and launched into a light jog towards the 
+caravan that raied Vumirian flag.
+
+"What's wrong Kris?" Freya asked, "All our stuff is in the cart."
+
+"Something is going wrong with Moonspire."
+
+"What do you mean?" he pressed his finger on his lips and silenced Freya
+for further questions. *Listen.* he mouthed as he approached the head of the 
+Vumirian Caravan.
+
+"We are King's Envoy." a slender man wearing Vumirian colors of blue said,
+"We've come here to collect the taxes that are due."
+
+"Sir," the guard said in a commanding voice, "We cannot let you through 
+right now. You do not have the necessary documentation."
+
+"What documentation?" the Vumirian Ambassodor sounded angry, "We are King's 
+Envoy."
+
+"Sir," the guard swallowed, "We are struggling to keep up with the immigration,
+and we've passed a new regulation. Every caravan that enters through will need
+a written application signed by the nearest Moonspire bureaucrat."
+
+"We are King's Envoy."
+
+Kris led Freya back to their caravan, "That was lie." she said.
+
+"Yes."
+
+"But why?"
+
+"They are rebelling." Kris shook his head and joined their caravan as it waited
+in queue behind the Vumirian Envoy.
+
+---
+
 
