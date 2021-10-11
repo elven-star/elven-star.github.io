@@ -1941,4 +1941,126 @@ in queue behind the Vumirian Envoy.
 
 ---
 
+Kris looked around the city and observed the darkness that had slowly gathered
+over the city and settled in people's heart. He looked at the hawker, trying 
+to sell an apple to a passer by with desperation. "Sir." the hawker called,
+"Please buy one apple. It'll be very helpful."
+
+He noted the divide between the ordinary and the rich. *What has happened to
+this place?* Kris thought. 
+
+"Where do you want to go?" Freya asked from his side.
+
+A soldier passed them by carrying a sword on his hips. *They never had swords.* 
+Kris recalled the last time he had been to Moonspire-- a year back-- the 
+soldiers carried a flexible baton, good for maintaining peace by not to kill.
+
+"Kris..." Freya tappe lightly on his shoulders, "Are you okay?" 
+
+*Forget about this place.* Kris told himself, *It is not your responsibility.*
+"Yes!" Kris held Freya's soft hands reflexively and led her through the crowded
+streets. "Let's eat something first."
+
+He weaaved through the swarm of people, rich and poor, weak and powerful, 
+soft and brutal with ease. *Don't let Freya see the brutality.* he quickly
+cornered into a narrower street when he felt a heated fight breaking out.
+
+"Kris." Freya called. Kris ignored her sweet voice and continued winding down
+the streets, taking one sharp turn after another.
+
+"We are here." he pointed towards a small shop sequestered between two storied
+buildings on either side. The canvas awning provided it an air of secrecy. 
+
+"What is that place?" Freya asked as the crossed the street, hand in hand.
+
+"That is a restaurant." Kris said, "I personally know the owner. He owes me a
+favor or two."
+
+Kris pushed the door open and walked inside. It took Kris a heartbeat to 
+adjust to the ambience lit by candles. A fire roared at the far end and warmed
+the inn from within. The door closed behind and shut the sunlight out. Kris
+helped Freya take off the cloak and the two took a quiet corner.
+
+Usually the inn bustled with rowdy customers, asking for more beer. But today,
+the inn was silent and they were the only customers. Someone shuffled behind
+the counter and few moments later Kris was welcomed by a smiling face of an 
+old man with over grown, tangled beard, "Kris." he clapped his hands together
+and made his way around the counter.
+
+"Maxie." Kris took the man in an embrace, "How are you?"
+
+"Meh," Maxie shrugged, "Surviving. Haven't seen you around for a while Kris."
+
+"Yes." Kris said nodding, "I just came to the city."
+
+"How is this beautiful lass?" Maxie pointed his thumb at Freya, "Your wife?"
+
+Kris looked at Freya and saw her cheeks turn pink, "No." he felt blood rushing
+to his ears.  "A friend."
+
+"Well." Maxie shruggged, "It good to see you back Kris."
+
+"Why is the inn empty this time of the day?" Kris gestured around him.
+
+"Things are changing Kris." Maxie said with a solemn face and a heavy voice,
+"A darkness has taken hold."
+
+"What is happening, Maxie." he asked the innkeeper to sit.
+
+"The King's gone mad, I tell you." Maxie said with frustration, "He thinks he 
+can rebel against Vumiria." Kris exchanged a look with Freya, "He wants more 
+power, Kris. No good will come out of it. I tell you."
+
+"Why does he rebel against Vumiria?" 
+
+"Well, I tell you, why he rebels," Maxie said exchanging glances, "He thinks,
+Moonspire is meant to be free, like it was in the past. His maddess is fanned 
+by him getting more and more weapons at cheaper prices.
+
+"A blue sword would cost you less than a meal." Maxie shook his head, "It is
+madness. People are going around cutting their enemies, seeking revenge 
+and all."
+
+"Blue sword?" Kris asked. 
+
+"Yes." Maxie shook his head, "A year back, Moonspire engineers came up with 
+a method to cast a sword as good as a forged steel sword."
+
+"Oh." Kris said, *Moonspire Engineers? Really?*
+
+"What do you want to eat Kris?" Maxie asked getting up to his feet.
+
+"The usual." Maxie nodded and went behind the counter and into the kitchen.
+
+"So the Blue sword," Freya asked in a hushed voice, "The attackers had back
+home were forged here?"
+
+"Seems like that." Kris nodded.
+
+"So Ana could be around in this town?"
+
+"I doubt." Kris said, "The men were wearing Elven Star crest. I think,
+Elven Star legion is some how involved with the Moonspire king.
+
+"The Moonspire engineers cannot have discovered a way to cast blue sword on 
+their own. The aren't very good, that's why the city police carried batons."
+
+"Ana," Kris said, "She's not here. I can almost feel it."
+
+"So what are we going to do?" 
+
+"We need to figure out Elven Star's base camp."
+
+Maxie came out from the kitchen carrying a bowl in both his arms and placed it
+in front of the duo, "Boiled potatoes in a broth, spiced with exotic black 
+pepper."
+
+"Black Pepper?" Kris took in the steam and sneezed, "Fancy. Thank you Maxie."
+
+"This," Kris said pointing at the bowl with his spoon, "is my favourite."
+
+Freya cooled a spoonful by blowing some air on it, "It's hot."
+
+---
+
 
