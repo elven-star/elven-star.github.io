@@ -1415,8 +1415,6 @@ Snowdale village into the icy wilderness of the north
 
 "We'll find out!" Kris gave a small, hopeful smile.
 
----
-
 ## Chapter 6
 
 <!--
@@ -1755,9 +1753,6 @@ Freya's head calmed him and her soft hands gave him strength that Riptide never
 offered. *Riptide* his hand itched and he squeezed Freya's hand a little
 harder.
 
----
-
-
 ## Chapter 7
 
 <!--
@@ -2006,7 +2001,7 @@ to his ears.  "A friend."
 "A darkness has taken hold."
 
 "What is happening, Maxie." he asked the innkeeper to sit.
-
+pip install git+https://github.com/PawPol/PyPortOpt.git
 "The King's gone mad, I tell you." Maxie said with frustration, "He thinks he 
 can rebel against Vumiria." Kris exchanged a look with Freya, "He wants more 
 power, Kris. No good will come out of it. I tell you."
@@ -2061,6 +2056,34 @@ pepper."
 
 Freya cooled a spoonful by blowing some air on it, "It's hot."
 
----
+## Chapter 8
 
+<!--
 
+1. Kris and Freya Share a room. Kris struggles with his emotions.
+2. Kris and Freya visit Maya. Kris tell her about his reason to visit. Ana
+Maya tells Ana is not her as she knows of no caravan that comes her. She
+should probably in Vumiria. Kris tells Maya to go to snowdale and teach his
+people how to fight and how to defend themselves.
+   a. Maya is an old woman with silver hair
+   b. Maya is strong and agile
+   c. Maya carries a walking cane that doubles as a weapon
+4. Maya, Kris and Freya discuss about escalating conditions between
+Moonspire and Vumiria
+   a. Maya suggests Elven Star 5th legion is supporting the King of Moonspire
+   b. Maya tells the King of Moonspire wants to be the King of Vumiria
+   c. Maya tells the Elven Star are helping Moonspire cast the Blue Sword
+   d. Maya hands Kris a Blue Sword for further examination
+4. Kris Swings it around and feels the Blue Sword. Kris feels the sword pulling
+violence out of him.Tugging him to hack the sword around and kill
+5. Maya tells him it is made of Aldervarium
+   a. Aldervarium is a newly discovered magical element
+   b. Elven Star Legion mines it
+   c. Elven Star Legion uses it to equip the Moonspire Soldiers
+6. Kris is worried about his people as he's left a ton of swords behind. Kris
+urges Maya to make haste towards the Snowdale.
+7. Freya and Kris leave. Maya tells Kris to let his past go and accept the
+present. Accept his love for Freya.
+8. Maya tells Kris that he needs Riptide if he's to save Ana. Kris disagrees
+
+-->
