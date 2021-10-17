@@ -2087,3 +2087,121 @@ present. Accept his love for Freya.
 8. Maya tells Kris that he needs Riptide if he's to save Ana. Kris disagrees
 
 -->
+
+"What are we going to do now?" Freya asked suppressing a burp. Kris scanned the
+surroundings and found people carrying blue blades on their hips. *Why would 
+he want to fight?*
+
+He looked at the faces of the men and saw fear and hubris, the innocence of the
+men stamped out by King's mania. *They were happy.* Kris remembered. 
+
+"Kris..." Freya called him back from the reality, *I don't care. I need to find
+Ana.* he reminded himself, "What are we going to do now?"
+
+"We'll get some rest!" the sun was setting behind Freya and casted a golden
+glow around her. *She looks stunning.* Kris thought shouldering his staff.
+
+"Where?" Freya scratched her chin.
+
+Kris smiled, "I know just the place. It's around that corner." Kris pointed.
+
+"Okay." Freya started towards the direction Kris was pointing. Kris saw her 
+walk away with a smile on his face and his heart skipping inside his chest.
+
+"The Innkeeper," Kris said joining Freya, "Stevie, owes me a favor. We should
+be able to get a couple of rooms."
+
+"Okay." Freya said as she wrapped Kris' jacket tightly around herself. 
+*Even mad, she's beautiful.* Kris thought. 
+
+The inn was placed at the corner of the street and was covered in a veil of 
+shadows casted by the dancing street lamps. Thugs grunted as Kris and Freya 
+walked through the street. 
+
+Kris looked over his shoulders and found Freya steeling herself and making a 
+fist at her sides, *She's brave.* he thought as he grabbed his staff tight.
+
+When Kris pushed the doors of the inn wide open, the thugs that followed them
+grunted and dispersed. From the door a dim light filtered into the street and
+smell of stale beer filled the air. Kris smiled, remembering the time he had 
+last visited Moonsire.
+
+"Kris." Stevie, the young innkeeper smiled and invited them inside. The inn was
+, unlike the restaurant, was bustling with life and drunk discussion. A brawl
+bubbled in the far corner and a musician tuned out a melody about the 
+participants. 
+
+"Stevie." Kris said resting the staff against his torso, "I see the business is
+great."
+
+"Yes." Stevie smiled, taking an order from a nearby table, "I have a lot more
+customers, but it is getting rough." Stevie found them a place and left them to
+settle. He returned with two mugs of beer and pulled a chair next to them.
+
+"Buddy," Kris said not sure how to proceed, "I need a couple of rooms."
+
+"Oh dear." Stevie said, "We have the entire inn booked by a band of sell
+swords. They want to sell their services to the King, I hear he's paying a 
+hefty amount."
+
+"Oh." Kris sighed, "Is there anything you can do?" he sipped on the beer and 
+raised an eyebrow. 
+
+"Ofcourse," Stevie said with a smile, "I have an idea." 
+
+"What is it?"
+
+"I have an attic," Stevie said, "I had it cleaned recently."
+
+"What is the catch?"
+
+"Well," Stevie said shifting in his seat, "The floor is creeky, the ceiling 
+leaks and the air smells-- funny."
+
+Kris looked at Freya and gestured, "What do you wanna do?" She thought for a 
+moment before nodding a *Yes.*
+
+"We'll take it."
+
+"It's good that you are listening to missus."
+
+"We are not married." Kris said in a flat voice, hiding a smile. 
+
+"Oh." Stevie shrugged, "Sorry." he got to his feet and gestured them to follow.
+
+Two flights of creeking staircae and bumping into a drunk, stumbling resident,
+the two were ushered into a dark attic. The strong chemical smell that reminded
+Kris of a hospital he had once visited.
+
+Stevie lit a candle and placed it on the dressing table. He scannd the room and
+smiled with satisfaction, "Finally." he whispered.
+
+"Thank you Stevie." Kris said opening the window and resting aginst the sill.
+
+"I owe you a lot Kris." he closed the door shut. 
+
+Kris saw Freya scan the room with a blush on her face, "You take the bed." Kris
+said as he looked out of the window and into the street below. The thugs were
+mugging an innocent passerby. Kris sighed and looked the other way. 
+
+*Ana.* he thought with a smile on his face and stone in his heart, *I'm sorry,
+I couldn't save you.* a tear drop formed in his eyes.
+
+"Kris." Freya called from the bed, "Sit with me."
+
+Kris sighed under his breath, *This is not going to end well.* he thought
+fighting against his past. He sat next to Freya who rested her head on his 
+lap and slowly fell asleep. Kris sat motionless as he heard Freya snore gently
+in her sleep. *She'...* Kris parked that thought and caressed Freya's brown 
+locks.
+
+*Ana.* Kris thought, *I hope you are alright.*
+
+The candle had burnt out, but the moon was just in the right place to
+illuminate the room in a soft white glow. Freya's hair caught the moon light in
+just the right way and glowed silver, *I guess Maya will be able to help us 
+find you Ana. Don't you worry little one.* 
+
+---
+
+
