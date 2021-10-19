@@ -2204,4 +2204,52 @@ find you Ana. Don't you worry little one.*
 
 ---
 
+*Freya... Ana...Marco...* faces of people he had cared about flashed one after
+another. Kris moved in his sleep, "No." he murmured, "I don't want to lose 
+you."
+
+He jerked awake in the middle of the night and found Freya snoring on his lap.
+*Freya...* he thought with love. Kris ran his hand through her hair and gently
+slid her off his laps. 
+
+Stretching he went to the window and allowed the crisp, chilly air soothe him.
+*There is a stench of corruption and evil.* he thought as he looked at the 
+lightening sky. 
+
+*Another day's beginning. Another day you are not with me Ana.* Kris felt the
+city slowly rubbing the sleep off and coming to life. In the distance he could
+hear metal rattling against each other. He could hear animals growl and moan
+as they took the fields. Somewhere deep in the heart of city he could her men
+and women gathering as the setup their businesses for the day. 
+
+Moonspire was the jewel of the north-- a cultural centre and a place where
+people could break away from the slow, boring life of a small village and find
+exciting work. But things were changing, Kris could sense tension in the air.
+
+Kris closed his eyes and waited for the sun push he darkness that had gathered
+in a corner out of the night sky. He could hear the screams of agony and blades
+clashing. He could hear the sweet voices-- of people he had loved-- turn into
+a painful scream. *Death follows.* he heard his voice over the searing scream,
+*With Riptide, it is easier to kill.* 
+
+Kris opened his eyes and ignored the itch to hold his blade, *How long has it
+been?* Kris tried to recall. He turned around to find Freya walking up from her
+sleep.
+
+"Good Morning." Kris greeted her. He found himself leaning and kissing her on 
+her cheeks. He couldn't help but run his hands through her hair, *Fuck.*
+
+"Good Morning Kris." Freya acted as if nothing had happened and get off 
+the bed.
+
+Kris watched her for a moment and the realized he was being creepy, "I'll find
+some breakfast for us."
+
+"Okay." Kris saw her blushng from the corner of his eyes as he closed the door 
+behind him.
+
+*What did I do?* he banged his head against the wall on his way down.
+
+---
+
 
