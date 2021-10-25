@@ -2001,7 +2001,7 @@ to his ears.  "A friend."
 "A darkness has taken hold."
 
 "What is happening, Maxie." he asked the innkeeper to sit.
-pip install git+https://github.com/PawPol/PyPortOpt.git
+
 "The King's gone mad, I tell you." Maxie said with frustration, "He thinks he 
 can rebel against Vumiria." Kris exchanged a look with Freya, "He wants more 
 power, Kris. No good will come out of it. I tell you."
@@ -2090,7 +2090,7 @@ present. Accept his love for Freya.
 
 "What are we going to do now?" Freya asked suppressing a burp. Kris scanned the
 surroundings and found people carrying blue blades on their hips. *Why would 
-he want to fight?*
+they want to fight?*
 
 He looked at the faces of the men and saw fear and hubris, the innocence of the
 men stamped out by King's mania. *They were happy.* Kris remembered. 
@@ -2233,7 +2233,7 @@ a painful scream. *Death follows.* he heard his voice over the searing scream,
 *With Riptide, it is easier to kill.* 
 
 Kris opened his eyes and ignored the itch to hold his blade, *How long has it
-been?* Kris tried to recall. He turned around to find Freya walking up from her
+been?* Kris tried to recall. He turned around to find Freya wakeing up from her
 sleep.
 
 "Good Morning." Kris greeted her. He found himself leaning and kissing her on 
@@ -2251,5 +2251,98 @@ behind him.
 *What did I do?* he banged his head against the wall on his way down.
 
 ---
+
+Kris returned with a tray in his hands, "Breakfast's here." he called out to
+grab Freya's attention who was standing at the window. When she turned around he
+saw horror in her eyes, "What happened?" he asked gently. Kris placed the tray
+of breakfast on the bed and embraced Freya who began sobbing.
+
+"What happened?" Kris asked again, running his hands through her shiny brown
+hair.
+
+"They..." Freya pointed out of the window at the thugs who lurked around in the
+alley, "They attacked a little girl and..."
+
+"And?"
+
+"They did unspeakable things to her." Freya broke in another fitful sob, "I
+couldn't even do a thing. I was unable to react."
+
+"It's okay," Kris hugged her tighter, "You were terrified."
+
+"Kris." Freya said wiping the tears off her face that had twisted further in
+horror.
+
+"Yes." he said softly. *Don't. Please don't say it.*
+
+"What if they..." Freya struggled to find the words, "Forget it. What did you
+bring for breakfast?" *Thank you* he said with his eyes. Freya smiled as she
+mustered strength to kiss him on his cheeks.
+
+*Fuck.* he thought with a smile as he mindlessly touched the spot where Freya
+had kissed him, "I brought some bread."
+
+"Hmm." Freya broke a piece of potato bread that Kris had brought upstairs and
+sat cross legged on the bed, "What now?"
+
+Kris took a piece for himself and sat next to her, "We'll go visit Maya."
+
+"Who's Maya?" Freya sounded jealous.
+
+"A very old friend." Kris thought for a moment, "I don't even remember how I met
+her."
+
+"Is she pretty?" Freya blushed-- regretting the question the moment it came out
+of her mouth. Kris could see shame and jealousy in her eyes.
+
+"Well," Kris scratched his chin, "She used to pretty."
+
+"Okay." Freya ripped another piece of bread and pouted.
+
+Kris smiled as he admired Freya and everything thing about her, *She's perfect.
+She's kind and brave and strong and... I'm falling.* he swallowed the last
+morsel and got to his feet, wiping his hands on his back. "Let's go." he
+shouldered his staff -- Nightglade and waited for Freya to get ready. 
+
+A moment later they were exiting the Inn, Freya inched closer locked their arms
+together. Kris looked over his shoulders and found her face twisted with anger,
+"Do you want to do something about what you saw?" Kris asked as they walked
+through the alleys under the watchful eyes of lurking thugs.
+
+"Yes." Freya nodded, "But..." before Freya could finish her sentence Kris
+stopped. The thugs grunted and zeroed in on them.
+
+"You are pretty." a thug said in a accent that Freya couldn't recognize, "I'm
+gonna eat you up."
+
+"Johnny," another thug called in, "She's meaty." the thug motioned towards her
+and before he could touch her breasts. Kris swung his staff cracking the man's
+skull who collapsed in an instance. 
+
+The thugs pulled their blue swords and charged, *They are sharp. The staff will
+break.* he reminded himself and he moved out of the incoming charge. He held
+Freya's hands with one and flourished the staff with the other and snapping a
+spine with a brutal hit. 
+
+*They are not trained.* Kris thought observing their stance and form as he swung
+again to break a rib. He caught another thug who had almost touched Kris with
+the blue blade in the follow through and broke his attack by breaking his shin.
+
+When he was done, the thugs who had lurked in the street were either dead or
+clinging to their dear life, "Let's go." Kris started. *Did I just show off?*
+Kris thought as he continued. He caught Freya blushing and smiling from the
+corner of his eyes. *Fuck. I just killed to show off.* Kris thought, *I'm the
+monster that I used to be.*
+
+"Kris." Freya said, "They deserved it." *Can she read my mind?* "They raped a
+little girl not older than 5. They beat her to death and dumped her body in the
+drain. They deserved it."
+
+"But should we be handing out justice?" Kris said underneath his breath.
+
+"What?" Freya asked.
+
+"Nothing." Kris raised his fingers and pointed to an alley at the end of the
+road, "Maya's house is just round that corner."
 
 
