@@ -2345,4 +2345,132 @@ drain. They deserved it."
 "Nothing." Kris raised his fingers and pointed to an alley at the end of the
 road, "Maya's house is just round that corner."
 
+---
+
+Three knocks later the door creaked open and an old woman with wrinkle skin and
+thinning silver hair opened. "Kris," she smiled and hugged him at the
+threshold, "Get in. And this is?" she pointed at Freya.
+
+"Oh," Kris scratched the back of his head not sure how to introduce her.
+
+"I'm Kris' friend." Freya said.
+
+"Get in." she waved them inside. The room was big with lots of windows and
+filled with sunlight. An owl hooted from its cage and a small fire crackled in
+the firepit across the room. Kris looked around observing the room, "You've
+made..." Kris said taking a seat, "Some changes." he looked at the paintings of
+war, mountains and an old village hanging on the small gaps between the
+windows.
+
+Maya looked around with a twinkle of pride in her eyes, "Yes." she said, "I
+painted them myself." She walked around the room closing the drapes and
+darkening the room. The fire that crackled casted long ominous shadows and lit
+Maya's silver hair orange. 
+
+"You are sad." Maya said sitting opposite him, "You are... broken. What
+happened?"
+
+Kris looked in Maya's eyes and saw wisedom and friendship. His eyes slowly
+filled with tears and he wiped them with the back of his hands, "It is so good
+to see you Maya."
+
+"It is good to see you Kris." Maya's voice felt wise and soothing, "What
+happened?"
+
+"Ana." Kris choked and resisted breaking into fitful sob, "They took Ana."
+
+"Who are they?"
+
+"Elven Star." Kris felt an icy rage filling the depths, "Monsters, carrying
+blue blades, raided *my* village. They stole Vumirium from the deposits and
+abducted *my* little Ana."
+
+"Oh dear." Maya said getting to her feet and hugging him. Kris sighed and felt
+the warmth of a motherly love. He looked over and found Freya pouting with
+jealousy, "Son, I'm sure Ana is alright." *That should do the trick.* he
+thought. Maya sat back across him and Kris thanked him with his eyes.
+
+"I don't know where she is." Kris said.
+
+Maya thought for a moment and then got up to her feet and went in a room behind
+a intricately decorated door and returned with a short sword. She threw the
+sword to Kris and asked, "What do you know about Blue Blade?"
+
+"Not much," Kris admitted, "I just know that they are being casted here in
+Moonspire. I find it hard to believe that Moonspire Engineers can do a good job
+with Metalwork."
+
+"Take out the sword." Maya said as she poured herself a hot tea from the kettle
+and waited for Kris. Kris looked at the nondescript scabbard and slowly pulled
+out the blade. The blade took the orange light in and filled the room with an
+icy blue tint. Kris got to his feet and examined the blade switching hands and
+swinging it. The itch to wrap his fingers around the Riptide was slowly being
+replaced by a much darker thought. *Kill.* something in his mind whispered as
+he swung to sword in air, *Kill that woman.* a voice coaxed him when he looked
+at Freya walking across the room and standing next to Maya. 
+
+Kris sheathed the sword and said in a solemn voice, "The sword is tugging at
+something inside my mind," he place the sword on the table and walked across
+the room and stared at the fire dancing in the pit, "It wanted me to kill."
+
+"Yes." Maya said with a twinkle in his eyes. "Very good. What can you deduce
+Lord Kris?" *Lord.* Kris thought, *Why would you call me that? After all this
+time?*
+
+Kris slowly turned to face Mayam "It is imbued with magic."
+
+"Good. Very good." Maya said sipping on the tea.
+
+"Magic?" Freya asked with a puzzled look on her face, trying to make sense.
+
+"Only a few metal can hold magic." Kris ignored Freya for the moment.
+
+"And which metal will this sword be made out of?"
+
+"Aldervarium." KRis said after a moment.
+
+"Very good." Maya said, "Maybe that is where you should start. The Aldervarium
+mines."
+
+Kris nodded and went back to staring at the fire, "I've a request for you,
+Maya!" A horror was setting in his mind, *Fuck. I left a stack of blue blade
+back home.* 
+
+"Anything for you Lord Kris."
+
+"I want you to go to Snowdale," Kris said without turning, "I want you to teach
+my people how to fight." 
+
+"Okay." Maya said, "I'll leave right away."
+
+After sharing lunch Kris, Freya and Maya prepared to embark on a long journey.
+*Should I tell her about Marco?* Kris thought as he eat lunch. *Should I tell
+her Marco is dead?* he thought when Maya was packing a bag for her journey.
+*Should I tell her I killed Marco?* Kris thought as the three prepared to leave
+the house.
+
+"A coin for your thought?" Maya said.
+
+"Maya," Kris started but didn't know how to continue, "While coming to
+Moonspire, we met a band of merchants." Kris added unneccessary details, "They
+were travelling from the Snowall and carrying exotic products, silk, fur,
+spices, herbs, opium. They had a band of mercenaries to protect the caravan
+from being looted. The head of the mercenary was..." Kris swallowed, "Marco."
+
+"Oh?" Maya raised an eyebrow, "Wasn't he... well dead?"
+
+"I thought so too." Kris said, "We had a fight. I killed him. I'm sorry."
+
+Maya didn't reply, instead she went into the the back of her room and returned
+with a staff -- a long, black staff. She placed it erect in front of him and
+said, "Kris." her voice was soft, "You need to let go of your past. You aren't
+a killer like you call yourself-- you are more than that. Death doesn't follow
+you. I know you are in love with that girl, just accept it. Give love another
+chance. Give Freya a chance-- she's right for you." She offered the long staff
+to him, "I give you Ardor-- in hope that you discover your trueself."
+
+The two walked out of the door, "Nice staff." Freya said. Kris smiled at her
+*Maybe I should tell her, that I'm in love with her.*
+
+---
 
