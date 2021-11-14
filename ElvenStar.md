@@ -2537,3 +2537,77 @@ Ana and then they'll come back to save Vumiria
 
 
 -->
+
+Moonspire was far behind them, the black walls only a dot. Kris led Freya on the King's road. *Ana.* he thought he could sense her present around here, *Maybe she did pass by on this road.* 
+
+Freya followed close by, Kris had handed his staff-- the Nightglade to Freya who used it like a walking stick, *Atleast I have her.* he thought. Kris smelled the air change the filth of Moonspire swept away. It felt clean and refreshing.
+
+"Kris," Freya called from behind. She was trying to swing the staff around her, *Maybe she can learn how to handle a staff. She's got the physique to wield it.*
+
+"Yes." he turned his head as he continued to walk on the King's Road. He looked straight ahead and found it to be devoid of any activity, *Usually, there are more than a few people walking.*
+
+"I've a question." she said catching upto him and walking shoulder to shoulder with him.
+
+"What is it?" Kris felt Ardor in his hands, *This staff... It is different.* he thought, *I should give it a try.* 
+
+"It's..." Freya hesitated a moment, "It's something Maya said back in Moonspire?"
+
+"Oh." Kris cursed under his breath, *Now I'll have to tell her the truth.*
+
+"What in particular?" Kris kicked a stone lying on the King's road and continued to fiddle with his new toy. 
+
+"She called you," Freya said, "Lord Kris."
+
+"Oh."
+
+"Are you going to tell me what that is all about? One moment she calls you son and the next she calls you Lord Kris. How old is she anyway?"
+
+"Well there's nothing to say about it," Kris tried to lie between his teeth, "She like to give nicknames to people. She wanted to call you Lady Jealousy."
+
+Freya sighed and they continued to walk in silence. Kris wrapped his fingers around Ardor, *It reminds me of,* Kris thought, *Riptide.* he inspected the staff closely and saw something etched finely, *Hmm. That looks... Ancient. How old is this staff anyway?* he narrowed his eyes, *For Hope and Love. Funny thing to write on a staff.*
+
+"No," Freya said, "You are lying." she calmly continued to walk next to him.
+
+Kris sighed, "It's a long story."
+
+Freya stopped and turned to face him. She looked up and down the road, "I suppose we have time for a long story."
+
+<!-- Insert a Story Here. -->
+
+"I suppose, it was a century ago. I had done some truly horrifying things and I was lonely. The continent was still the same-- Vumiria was powerful, Moonspire a centre of culture. The mountain men still didn't have anything thing to do with everyone els and yet it was very different.
+
+The people were arrogant and all they wanted to do was steal, rape and kill. I enjoyed their despicable act, hell I indulged myself in them as well. I stole and I killed.
+
+I still remember the night pretty clearly, I was hiding behind a tree waiting for the next caravan of merchants to pass. Stars looked pretty and a gentle breeze was blowing. 
+
+I waited for hours smoking cigarettes one after another. The night had grown dark and I had fallen asleep when I heard something move, like footsteps falling on a beaten road. Twigs that had blown over cracked and leaves crumbled. I jolted up from my sleep and peered from behind the tree. A small group walked along the road.
+
+But before I could attack them, they were attacked my a handful of teenagers, they held knives in their trembling hands asking for the merchants to hand over gold and food and water. But the mercenaries that the merchants had hired attacked them first.
+
+I couldn't help myself and I rushed to stop them from killing a handful of desperate teenagers. It was the first time I had met them, Maya, Marco, Brock, Georgia and Valerie. It was the first time I had cared about someone in a long, long time. 
+
+I killed the merchants and the mercenaries and left the little ones to loot. But they followed me, together we began looting people all around the continet. We stole from the rich and well fed and distributed it to the poor. 
+
+People began calling us Bones and Swords and the little blighters began call me Lord Kris. I actually enjoyed their company, almost as much as I enjoyed Ana's, they gave me hope. They made me be a better person than I'm. 
+
+Guess, I don't get to enjoy good stuff for long time. After that things only went south."
+
+"Okay," Freye interepted, "How old are you?"
+
+"Let's not talk about age," Kris said.
+
+Kris stopped suddenly and signaled Freya to remain silent. Kris closed his eyes and focused something moved amongst the woods that lined the King's Road. "Bow and arrow." Kris mouthed and Freya strung her bow and took out an arrow from her quiver.
+
+A few feet from them, a small four legged creature leaped on to the road. Its eyes were golden and it was covered in deep black fur. It growled and showed sharp fangs that could pierce a thin sheet of metal. 
+
+Freya drew her arrow and aimed at the beast, Kris singaled her ot hold her fire. The beast snarled. Kris could sense its hunger and its fear. The beast crouched on it's hind legs and sprung at them.
+
+Before the beast could dig its fangs in them Freya-- on Kris's signal loosened the arrow that found it's heart. The beast fell to the ground with a dull thud whimpered before dying out.
+
+Kris knelt besides the dead beast and folded him arms in a silent prayer, "This is a Panther." Kris pulled the arrow jutting out, "You can only kill it if you aim for it's chest." He took out a knife and stab it's side. The knife deflected sending out a spark, "See? The skin is thick as a metal. It is precisely for this reason Panthers are considered to be on of the deadliest creature on the continent. People don't know how to kill them."
+
+Kris warpped his fingers around the beast's hindlegs and pulle him into the woods of the King's Road, "Where are we going Kris?"
+
+"Skin him." Kris dropped the knife at Freya's foot, "The skin has value, we can create and armor out of it."
+
+He unbuttoned his shirt revealing his chiseled torso-- Freya blushed and turned away. He shouldered the staff and went deeper into the woods. He heard Freya sigh, "You are annoying, Kris. But I love you." Kris shook his head, *I love you too.*
