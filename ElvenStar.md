@@ -2611,3 +2611,48 @@ Kris warpped his fingers around the beast's hindlegs and pulle him into the wood
 "Skin him." Kris dropped the knife at Freya's foot, "The skin has value, we can create and armor out of it."
 
 He unbuttoned his shirt revealing his chiseled torso-- Freya blushed and turned away. He shouldered the staff and went deeper into the woods. He heard Freya sigh, "You are annoying, Kris. But I love you." Kris shook his head, *I love you too.*
+
+---
+<!-- Kris and Freya help a young boy meet his parents -->
+
+Kris wrapped the panther skin around Freya's shoulders and handed her Nightglade, "Swing it!" he stepped back. Freya tightened her grip around the staff and swung it with all her might, "How do you feel? Is the armor lose?"
+
+"Yeah," Freya said resting the staff vertically, "It felt like it'll slide off my shoulder here." 
+
+Kris nodded, thinking for a moment, before adjusting the three piece armor he had sewn from the Panther skin. Kris had fashioned the chest piece into a waist height cloak. The front and the rear of the armor was made from the metal-like sides of the Panther. He inched closer and tightened the string that tied the two pieces of the armor together. 
+
+He felt Freya's warm breath on his neck as he adjusted the armor and his heart skipped, *Should I kiss her?* he thought as he worked on the armor, *No.* He found Freya blushing from the corner of his eyes, "Let's try again," he said stepping back. 
+
+Freya swung Nightglade and nodded to Kris, "It is good now." Freya pierced the ground with the staff, and walked around the glade-- stretching-- to get used to the body armor, "You don't need an armor?" she asked Kris jumping in place.
+
+"Not right now." he said as he put the cloak around his shoulders and wrapped it tightly. *What was that?* he heard a twig crack somewhere in the forest and he signaled Freya to ready her bow. *We make a good team!* he thought when he saw Freya hiding behind a tree with an arrow drawn.
+
+"Who is it?" Kris asked with an intimidating voice, he fell into a defensive stance with Ardor. A footsteps approached the glade, and few moments later, a little boy walked into the glade with muddy clothes and swollen red eyes. Freya, put the arrow back in the quiver and fell to Kris' side.
+
+"Hey, little fellow," Freya said with a soft voice, "Are you cold?" The little boy wiped the tears off his cheeks and nodded. Freya undid her cloak and wrapped it around the him and led him to the fire that had fizzled out to hot ambers of burnt wood.
+
+"What's your name?" Kris asked, scaring the little boy who hid behind Freya. Freya smiled and mouthed, *Shut up.* Kris shook his head and sat on a stump and threw in some kindle to get the fire going again.
+
+"Do you want something to eat?" Freya said sitting next to the little boy who wandered into the glade. *She's good...* Kris thought, *She's so... warm.* he ripped a piece of from the roasted panther meat-- they had dried and salted it a few days back-- and handed it to Freya. *Who is this boy?* Kris made note of the boy's narrow eyes and light brown hair, *He's from around here. Typical rural moonspire features.*
+
+"Do you want some more?" Freya asked.
+
+*How many days since we left Moonspire,* Kris tried to recall, *Should be about a week.* he thought. Kris handed another chunk of roasted meat to Freya who fed the little boy.
+
+"What is your name kid?" Freya asked running her hand through her matted hair.
+
+"Yuri." the boy said, chewing on the meat with hungry eyes.
+
+"Yuri," Freya said with a smile, "That's a sweet name. Where are your parents, Yuri?"
+
+"I don't know," the boy began sobbing feverishly, "I want to go back to mommy." the boy sobbed uncontrollably and Freya embraced Yuri and hushed him.
+
+"Don't worry Yuri," Freya said  running her hands softly through his hair, "Kris and I will find your parents." 
+
+"Ask him what is the name of his village." Kris mouthed to Freya who shook her head.
+
+"I'll do it later." Freya said silently.
+
+"Do you want to sleep Yuri?" Freya asked the little boy. The boy nodded and Kris undid his cloak and aranged it for the boy to sleep in.
+
+When the boy was asleep Kris walked up to Freya, *I want to kiss her...* he thought looking at her lips, "When the boy wakes up, I want you to get as much information about his village from his as possible!" he instructed Freya instead.
