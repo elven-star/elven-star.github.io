@@ -2613,6 +2613,7 @@ Kris warpped his fingers around the beast's hindlegs and pulle him into the wood
 He unbuttoned his shirt revealing his chiseled torso-- Freya blushed and turned away. He shouldered the staff and went deeper into the woods. He heard Freya sigh, "You are annoying, Kris. But I love you." Kris shook his head, *I love you too.*
 
 ---
+
 <!-- Kris and Freya help a young boy meet his parents -->
 
 Kris wrapped the panther skin around Freya's shoulders and handed her Nightglade, "Swing it!" he stepped back. Freya tightened her grip around the staff and swung it with all her might, "How do you feel? Is the armor lose?"
@@ -2659,4 +2660,4 @@ When the boy was asleep Kris walked up to Freya, *I want to kiss her...* he thou
 
 ---
 
-Test commit
+Fu
