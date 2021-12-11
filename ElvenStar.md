@@ -2656,3 +2656,7 @@ Freya swung Nightglade and nodded to Kris, "It is good now." Freya pierced the g
 "Do you want to sleep Yuri?" Freya asked the little boy. The boy nodded and Kris undid his cloak and aranged it for the boy to sleep in.
 
 When the boy was asleep Kris walked up to Freya, *I want to kiss her...* he thought looking at her lips, "When the boy wakes up, I want you to get as much information about his village from his as possible!" he instructed Freya instead.
+
+---
+
+Test commit
