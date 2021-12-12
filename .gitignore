@@ -2,4 +2,4 @@
 token.md
 *.code-workspace
 *.swp
-*.plot
+.ipynb_checkpoints/

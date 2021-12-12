@@ -2614,50 +2614,80 @@ He unbuttoned his shirt revealing his chiseled torso-- Freya blushed and turned 
 
 ---
 
-<!-- Kris and Freya help a young boy meet his parents -->
+<!-- Kris and Freya run into a small Squad of Elven Star Legion -->
 
-Kris wrapped the panther skin around Freya's shoulders and handed her Nightglade, "Swing it!" he stepped back. Freya tightened her grip around the staff and swung it with all her might, "How do you feel? Is the armor lose?"
+Kris looked over his shoulders and found Freya fiddling with the Panther Armor he had made for her, "Stop that," mildly irritated, "You'll weaken the sewing." It had taken him a couple of days to sew the two pieces of armor together but he was impressed by what he had accomplished. 
 
-"Yeah," Freya said resting the staff vertically, "It felt like it'll slide off my shoulder here." 
+"It is annoying." Freya said, "I feel like I'm behind choked to death." 
 
-Kris nodded, thinking for a moment, before adjusting the three piece armor he had sewn from the Panther skin. Kris had fashioned the chest piece into a waist height cloak. The front and the rear of the armor was made from the metal-like sides of the Panther. He inched closer and tightened the string that tied the two pieces of the armor together. 
+"Just keep moving," Kris sighed softly and continued to walk through the forest. After being attacked by a small group of bandits, Kris had decided it was safer to travel off road.
 
-He felt Freya's warm breath on his neck as he adjusted the armor and his heart skipped, *Should I kiss her?* he thought as he worked on the armor, *No.* He found Freya blushing from the corner of his eyes, "Let's try again," he said stepping back. 
+"Why aren't we walking the King's road again?" Freya asked as she swiped Nightglade in a semi-circle, "It would have been easier." 
 
-Freya swung Nightglade and nodded to Kris, "It is good now." Freya pierced the ground with the staff, and walked around the glade-- stretching-- to get used to the body armor, "You don't need an armor?" she asked Kris jumping in place.
+Kris looked over his shoulders again and blushed, *She looks amazing in that armor, maybe I should teach her how to fight with a staff.* 
 
-"Not right now." he said as he put the cloak around his shoulders and wrapped it tightly. *What was that?* he heard a twig crack somewhere in the forest and he signaled Freya to ready her bow. *We make a good team!* he thought when he saw Freya hiding behind a tree with an arrow drawn.
+"Are you going to answer, Lord Kris?" Freya mocked him with a devious smile.
 
-"Who is it?" Kris asked with an intimidating voice, he fell into a defensive stance with Ardor. A footsteps approached the glade, and few moments later, a little boy walked into the glade with muddy clothes and swollen red eyes. Freya, put the arrow back in the quiver and fell to Kris' side.
+"It is safer if we walk off road," Kris cleared a path ahead of him with Ardor, "I don't want us to get attacked by bandits again."
 
-"Hey, little fellow," Freya said with a soft voice, "Are you cold?" The little boy wiped the tears off his cheeks and nodded. Freya undid her cloak and wrapped it around the him and led him to the fire that had fizzled out to hot ambers of burnt wood.
+"Okay."
 
-"What's your name?" Kris asked, scaring the little boy who hid behind Freya. Freya smiled and mouthed, *Shut up.* Kris shook his head and sat on a stump and threw in some kindle to get the fire going again.
+The trees grew closer as the went towards Vumiria. Sun barely made it to the ground and weird insects and mushrooms bloomed in the darkness of the forest floor. Kris recalled the last time he had been in Vumiria, *Oh, don't even think about it.* he kept himself from thinking about the darkest time of his life. 
 
-"Do you want something to eat?" Freya said sitting next to the little boy who wandered into the glade. *She's good...* Kris thought, *She's so... warm.* he ripped a piece of from the roasted panther meat-- they had dried and salted it a few days back-- and handed it to Freya. *Who is this boy?* Kris made note of the boy's narrow eyes and light brown hair, *He's from around here. Typical rural moonspire features.*
+*I've been a murderer.* he couldn't help himself from plunging into the darkness, *I don't want to be that person again.*
 
-"Do you want some more?" Freya asked.
+After walking the entire day, Kris finally stopped in a small glade that had formed after a gigantic tree had died. The huge stem cleared a area wide enough for the two to build a small camp. Kris dropped his backpack, jammed Ardor into the ground and stretched. His back was knotted and his legs ached, but he was glad to have Freya by his side. 
 
-*How many days since we left Moonspire,* Kris tried to recall, *Should be about a week.* he thought. Kris handed another chunk of roasted meat to Freya who fed the little boy.
+"Ugh." Kris noted she was tired to her bones and yet she steeled herself to pick up her bow and arrow to go for a hunt. Since Moonspire, the air had warmed up and game was plenty, "Be right back, gotta find food."
 
-"What is your name kid?" Freya asked running her hand through her matted hair.
+Kris held Freya's hands and turned her towards him, "Wait," he said not making any eye contact, "You rest, I'll hunt today."
 
-"Yuri." the boy said, chewing on the meat with hungry eyes.
+"Umm," Freya looked at him for a moment, "Are you sure? I'm a better hunter."
 
-"Yuri," Freya said with a smile, "That's a sweet name. Where are your parents, Yuri?"
+"Yes." Kris pulled her towards a small stump in the clearing and pushed her to take a seat, "I'll manage."
 
-"I don't know," the boy began sobbing feverishly, "I want to go back to mommy." the boy sobbed uncontrollably and Freya embraced Yuri and hushed him.
+Freya nodded and Kris turned around to go in a direction he thought he'll find a game. He looked over his shoulders one last time and found Freya practicing with the Nightglade, *Yes, I definitely need to teach her.* he thought as Freya disappeared into the darkness of the forest. 
 
-"Don't worry Yuri," Freya said  running her hands softly through his hair, "Kris and I will find your parents." 
+Kris wandered the forest for about an hour before he stumbled up a track left by a small rabbit Kris smiled to himself and pulled out his knife from a pocket and followed the trail. He found rabbit droppings along the way and half chewed leaves spread around. 
 
-"Ask him what is the name of his village." Kris mouthed to Freya who shook her head.
+Carefully, without making a sound, Kris stalked closer and found a white bunny chewing on a leaf. Kris smiled and folded his hands in a silent prayer, he aimed his knife at the rabbit and killed the beast, "Thank you little one." he said kneeling next to the rabbit and slowly pulling the knife out.
 
-"I'll do it later." Freya said silently.
+"Kris." he heard Freya's muffled scream and Kris left the beast and retraced his steps. *No. No. NO.* he thought angrily as he ran frantically to the camp. His mind began to plunge into terror and darkness and Kris held himself together. With staff in one hand and the knife in the other Kris ran towards Freya's scream, "Kris." 
 
-"Do you want to sleep Yuri?" Freya asked the little boy. The boy nodded and Kris undid his cloak and aranged it for the boy to sleep in.
+"Freya." he screamed back, "I'm coming." he paused for a moment and heard steps shuffling in the forest. Anger boiled inside him and he continued to chase the voice. 
 
-When the boy was asleep Kris walked up to Freya, *I want to kiss her...* he thought looking at her lips, "When the boy wakes up, I want you to get as much information about his village from his as possible!" he instructed Freya instead.
+A moment later he stumbled across a squad of buffed men. He recognized the crest on their uniform and the blue sword on their hips, rage boiled inside him. Kris looked around him and found a couple of Elven Star men dead with an arrow in their eyes, *Where is she?* he scanned and went white seeing Freya pinned to the ground and a man trying to rip her clothes free with the blue sword. 
+
+Without thinking, Kris threw his knife at the, man stabbing him in the neck. He quickly florished his staff and waited for others to attack him.
+
+"Oh," a man mocked, "So you are going to fight swords with a staff?" his fellow soldiers laughed as the pulled the blue sword free of its scabbard and began to surround him in a diciplined manner.
+
+"Hmm." Kris grunted as he waited for them to begin their attack. 
+
+"You cannot beat us." a man who looked like the leader of this squad said with arrogance, "We are the Elven Star." 
+
+"Okay." Kris dismissed them and coaxed them to attack. He calmed his nerves and reminded himself who he was, *I'm a murderer. Let's see what you've got.* 
+
+Kris heard a man approach him from his blind spot and he quickly swung around and crashed the staff into the man's skull, cracking it instantly. With a smile he turned to face the squad leader, "Oops." he mocked him.
+
+The squad leader ordered one of his men to Kris' left to attack with his eyes. Kris smiled and turned on his heels smashing his staff in the attacker's thigh bringing him to his knees. Kris smiled at the kneeling man and kicked him in his groins hard enough to kill the man.
+
+"Is that all you got?" he asked the squad leader. They were 9 when they decided to attack but Kris and Freya together had killed 5 of them without any effort. The squad leader mumbled something to his team and they all circled in together. 
+
+Kris dodged a blue blade and stabbed an attacker with his staff's rough end. He looked at the leader and smiled and swung in other direction cracking a skull. A arrow whizzed past him piercing an attacker in the neck. Kris crooned his neck to see Freya smiling, covered in blood. 
+
+Kris swung his staff and broke the rib of another attacker before turning his attention to the squad leader. Kris noticed fear in the man's eyes and saw him swallow. His face muscles twitched and Kris smiled at him, "Who are you again?" Kris asked with a devious voice. 
+
+Kris approached the man who violent swung his blade. Kris lifted his staff out of reflex and the blade jammed inside Ardor's smooth body, *Hmm. Interesting.* the squad leader tried to pull it free but Kris kicked him in the gut. Kris threw his staff to his side and punched the man in his face and pulled out another knife from a secret pocket and pressed the tip against the man's soft neck.
+
+"Kris." Freya called from behind, "Let him go." Kris emnated darkness and Freya sensed it.
+
+"I cannot." he smiled deviously as he slowly penetrated the man's neck with his knife. Blood oozed out from the wound. Kris dropped the knife suddenly, realizing what he was doing and dropped to his knees. The squad leader pressed his hands on the wounds and coughed before he collapsed in front of Kris.
+
+"What did I do?" he nervously asked Freya.
+
+"It's alright." she embraced him in a warm hug, "You were saving me."
+
+Kris looked at her with red eyes and blood in his hands, *She looks stunning, covered in blood.* he put his hands on her cheeks and pulled her into a kiss, "I love you." he said softly.
 
 ---
-
-Fu
