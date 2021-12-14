@@ -2572,29 +2572,100 @@ Kris sighed, "It's a long story."
 
 Freya stopped and turned to face him. She looked up and down the road, "I suppose we have time for a long story."
 
-<!-- Insert a Story Here. -->
+---
 
-"I suppose, it was a century ago. I had done some truly horrifying things and I was lonely. The continent was still the same-- Vumiria was powerful, Moonspire a centre of culture. The mountain men still didn't have anything thing to do with everyone els and yet it was very different.
+<!-- 
 
-The people were arrogant and all they wanted to do was steal, rape and kill. I enjoyed their despicable act, hell I indulged myself in them as well. I stole and I killed.
+- Kris, Maya, Marco, Brock, Georgia and Valerie  fought side by side
+- Georgia, Marco's wife is killed buy Kris in an accident.
+- Marco swears he'll avenge her and has been after Kris for Eons.
+- All this happens When Kris had taken the identity of a soldier in Vumirian
+before he came to Snowdale
+- Marco and Kris fight. Kris defeats Marco. Kris believes he has killed Marco
+and mourns. He gives up his sword to Valerie who takes it away for safekeeping
+Brock takes to sea. Maya settles in Moonspire and Kris establishes Snowdale.
+- Marco, who Kris thought had died is alive and he hunts for Kris across the
+continent, training himself and establishing a band of sellswords.
+- Valerie gives birth to Vanessa- Who inherits Kris' sword Riptide 
 
-I still remember the night pretty clearly, I was hiding behind a tree waiting for the next caravan of merchants to pass. Stars looked pretty and a gentle breeze was blowing. 
+Prompt:
+    Kris meets Maya, Marco, Brock, Georgia and Valerie
+Character:
+    Maya, Marco, Brock, Georgia and Valerie
+Setting:
+    A small village in aldervaren
+Goals:
+    Show Kris was a loner
+    Show Kris to be arrogant
+    Show Kris he loved bloodshed and killing
+-->
 
-I waited for hours smoking cigarettes one after another. The night had grown dark and I had fallen asleep when I heard something move, like footsteps falling on a beaten road. Twigs that had blown over cracked and leaves crumbled. I jolted up from my sleep and peered from behind the tree. A small group walked along the road.
 
-But before I could attack them, they were attacked my a handful of teenagers, they held knives in their trembling hands asking for the merchants to hand over gold and food and water. But the mercenaries that the merchants had hired attacked them first.
+I woke up with dull aches in every muscle of my body. The alcohol from the previous night had now turned sour and gave me a splitting headache. I looked to my side and found a beautiful red-haired girl snoring gently. It was a long time ago, with friendlier people and harsher conditions. 
 
-I couldn't help myself and I rushed to stop them from killing a handful of desperate teenagers. It was the first time I had met them, Maya, Marco, Brock, Georgia and Valerie. It was the first time I had cared about someone in a long, long time. 
+I wrapped the bedsheet around my waist and dragged myself off the bed and found the innkeeper cleaning the tavern, "I need a whiskey," I called out. I had this belief that alcohol is the only thing that can cure a hangover. I was a different man then, choke-full of arrogance.
 
-I killed the merchants and the mercenaries and left the little ones to loot. But they followed me, together we began looting people all around the continet. We stole from the rich and well fed and distributed it to the poor. 
+The innkeeper's sigh hurt the insides of my skull. The old man slammed a mug of warm, stale beer, "This is all we have." 
 
-People began calling us Bones and Swords and the little blighters began call me Lord Kris. I actually enjoyed their company, almost as much as I enjoyed Ana's, they gave me hope. They made me be a better person than I'm. 
+I had never tried curing a hangover with stale beer before so I shrugged and gulped it down, "That tastes like piss." I belched. I sighed and was about to go back into my room and make some love with the red-haired girl when I stumbled into a small kid who grinned widely. 
 
-Guess, I don't get to enjoy good stuff for long time. After that things only went south."
+The little girl peeped at the door behind me and giggled, "What are you planning to do urchin?" She pulled my bedsheet with force, chafing my sensitive regions, and dashed her small group of miscreants. I winced and walked back to the room. 
 
-"Okay," Freye interepted, "How old are you?"
+I had recently given up a life of luxury and had decided to roam the continent alone. I'd spent countless days wandering the Aldervaren before I stumbled upon a small settlement. I enjoyed my own company, but sometimes I missed female companionship, so chaffed and all, I made love to that beautiful red-haired girl-- several times. 
 
-"Let's not talk about age," Kris said.
+The next morning, I found the little urchin stealing fruits from a vendor in the market, she nimbly lifted an apple while her friends distracted the seller by creating a ruckus. Curious, I found myself chasing the group of miscreants. The deftly slipped into the shadows of dark alleys and emerged the other side.
+
+The little urchin, who had stolen my bedsheet led her friends and me into a dark alley sequestered between two closely built houses. I kept myself at an earshot distance and heard them talk, "Tomorrow, we'll eat pie."
+
+"Maya," I heard one of them speak, "What if we get caught?" 
+
+"What then?"
+
+"Aren't you afraid of being beaten?"
+
+"I'd rather be beaten than go hungry," the little urchin said with pride, "And don't worry Marco, you can blame it all on me."
+
+I heard footsteps approach from the other side of the alley, "Maya," a deep hoarse voice echoed in the alley, "How are you?"
+
+"Piss off," for a girl so small, Maya had a big mouth, "Jake!"
+
+"Now, now," Jake inched closer, "Why'd you insult me, don't you remember what I did last time?"
+
+I was far from the miscreants, but I sensed Maya terrified of Jake, "No, asshole!" she steeled herself. Her friends cowered behind her as Jake finally came to light. He was a huge man with multiple scars on his face and was wearing a shirt that was crusted with mud.
+
+Jake ran his thick fingers along Maya's face and lifted her shirt, "Your scar is healing," he said rubbing her belly, "let me give you another one."
+
+I was taken aback when tiny Marco stood up, "Keep your hands off her." Jake looked up at him and slapped him brutally across his face. Maya balled her fist and punched Jake in the eye.
+
+"You are going to pay for that," he gripped the little urchin in his hands and pinned her on the street, Maya struggled to break free. 
+
+Something inside me boiled, I had done several unspeakable things in my life, but what Jake was about to do was unforgivable. Without thinking, I jumped into the street, stunning Jake.
+
+"Who the hell are you?" Jake said with a raised eyebrow.
+
+I simply smiled as I pulled out my sword, *Riptide* out from its scabbard and the dark alley immediately turned darker. The black blade of Riptide sucked in light. The man fumbled to pull out his weapon, but before he could reach for it I tossed his head across the alley.
+
+"Thank you." Maya said, "I'm sorry about yesterday."
+
+"You are brave, Maya," I offered her my hand, "But you need to learn a lot about street fights."
+
+"Will you teach me?"
+
+I sheathed the Riptide and nodded, "But you have to promise me, you'll take my bedsheets-- for that matter, my towels-- like that ever again."
+
+"Promise," Maya grinned, "What is your name?"
+
+I had a very old name, but that wasn't me. After doing many terrible things, I wanted to be someone else, but I hadn't figured it out, "I don't have a name!"
+
+"We didn't either," Marco said spitting blood, "We gave each other one."
+
+"You are a Kristopher," Maya said measuring me up with her eyes, "You are a Kristopher."
+
+"Yes," Marco looked at me too, "You are."
+
+"Lord Kris!" Maya kneeled before me, "My Liege!"
+
+---
 
 Kris stopped suddenly and signaled Freya to remain silent. Kris closed his eyes and focused something moved amongst the woods that lined the King's Road. "Bow and arrow." Kris mouthed and Freya strung her bow and took out an arrow from her quiver.
 
@@ -2691,3 +2762,10 @@ Kris approached the man who violent swung his blade. Kris lifted his staff out o
 Kris looked at her with red eyes and blood in his hands, *She looks stunning, covered in blood.* he put his hands on her cheeks and pulled her into a kiss, "I love you." he said softly.
 
 ---
+
+<!-- Insert a Story Here. -->
+<!--  Kris and Freya Make Love. A romantic Story-->
+<!-- End Insert -->
+
+## Chapter 10
+
